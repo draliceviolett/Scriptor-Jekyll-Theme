@@ -14,7 +14,7 @@ I'm going to use my efforts to get through my TBR as an excuse for only doing on
 
 ![The Thirteenth Tale, Middle England, Deadly Secrets](/images/april-collage-1.jpg)
 
-[<cite>The Thirteenth Tale</cite>, by Diane Setterfield](/book-blog/2019/04/07/the-thirteenth-tale-by-diane-setterfield.html) - 4.5*
+[<cite>The Thirteenth Tale</cite>, by Diane Setterfield](/the-thirteenth-tale-by-diane-setterfield.html) - 4.5*
 
 <cite>Middle England</cite>, by Jonathan Coe - 4.5*
 

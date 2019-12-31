@@ -20,13 +20,13 @@ I read 11 non-fiction, crime and thriller, fantasy and historical fiction books 
 
 ![Darling, Last Breath, The Twisted Tree, The Library Book](/images/february-collage-2.jpg)
 
-[<cite>Darling</cite>, by Rachel Edwards](/book-blog/2019/02/12/darling-by-rachel-edwards/) - 4*
+[<cite>Darling</cite>, by Rachel Edwards](/darling-by-rachel-edwards/) - 4*
 
 <cite>Last Breath</cite>, by Robert Bryndza - 5*
 
 <cite>The Twisted Tree</cite>, by Rachel Burge - 4*
 
-[<cite>The Library Book</cite>, by Susan Orlean](/book-blog/2019/02/21/the-library-book-by-susan-orlean/) - 5*
+[<cite>The Library Book</cite>, by Susan Orlean](/the-library-book-by-susan-orlean/) - 5*
 
 ![The Dry, The Wych Elm, The Familiars](/images/february-collage-3.jpg)
 
@@ -40,7 +40,7 @@ I read 11 non-fiction, crime and thriller, fantasy and historical fiction books 
 
 ![The Glass Woman, All Out, Potkin and Stubbs, The Lady's Guide to Petticoats and Piracy, The Wolves of Leninsky Prospekt](/images/february-collage-4.jpg)
 
-I do love a bit of Gothic/scary historical fiction (I absolutely devoured <cite>The Familiars, by Stacey Halls</cite> this week, and <cite>The Corset</cite>, by Laura Purcell, was one of [my favourite books of 2018](/book-blog/2019/01/02/best-of-2018/)) so I'm really looking forward to getting my hands on <cite>The Glass Woman</cite>, by Caroline Lea. And how beautiful is that cover?!
+I do love a bit of Gothic/scary historical fiction (I absolutely devoured <cite>The Familiars, by Stacey Halls</cite> this week, and <cite>The Corset</cite>, by Laura Purcell, was one of [my favourite books of 2018](/best-of-2018/)) so I'm really looking forward to getting my hands on <cite>The Glass Woman</cite>, by Caroline Lea. And how beautiful is that cover?!
 
 I picked up <cite>The Wolves of Leninsky Prospekt</cite>, by Sarah Armstrong, at her author event at [Red Lion Books](http://www.redlionbooks.co.uk/) last month and haven't had time to read it yet, so it's near the top of my TBR list.
 
@@ -48,4 +48,4 @@ As mentioned above, I gave Mackenzi Lee's <cite>The Gentleman's Guide to Vice an
 
 I'm really excited to read Sophie Green's first children's book, <cite>Potkin & Stubbs</cite>, and not just because we work together! A journalist helping a ghost investigate their own death, with noir and comedy elements? Sign me up! And don't tell me I'm 'too old' for middle grade books...
 
-I mentioned in [last month's round-up](/book-blog/2019/02/01/what-i-read-in-january-2019/) that I was looking forward to reading <cite>The Stone Circle</cite>, by Elly Griffiths, this month, but my reservation didn't come through in time! It's in transit now, though, so hopefully I'll be reading it very soon.
+I mentioned in [last month's round-up](/what-i-read-in-january-2019/) that I was looking forward to reading <cite>The Stone Circle</cite>, by Elly Griffiths, this month, but my reservation didn't come through in time! It's in transit now, though, so hopefully I'll be reading it very soon.

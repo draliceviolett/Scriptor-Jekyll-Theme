@@ -9,7 +9,7 @@ featured-image: /images/who-did-you-tell.jpg
 
 ![Who Did You Tell](/images/who-did-you-tell.jpg)
 
-*I received a free advance copy of this book from Alison Barrow from Transworld at a pre-launch dinner for Colchester book-lovers (you can read more about this in [my review of <cite>Confessions of a Bookseller</cite>, by Shaun Bythell](/book-blog/2019/11/29/confessions-of-a-bookseller-by-shaun-bythell)). The opinions expressed in this post are entirely my own.*
+*I received a free advance copy of this book from Alison Barrow from Transworld at a pre-launch dinner for Colchester book-lovers (you can read more about this in [my review of <cite>Confessions of a Bookseller</cite>, by Shaun Bythell](/confessions-of-a-bookseller-by-shaun-bythell)). The opinions expressed in this post are entirely my own.*
 
 I enjoyed reading Lesley Kara's debut thriller, <cite>The Rumour</cite>, early last year, so when I was offered the opportunity to go to a pre-launch dinner where I could pick up an advance copy of her new novel, <cite>Who Did You Tell?</cite>, it was a no-brainer really. I couldn't wait to return to Flinstead (the seaside setting of both books, loosely based on Lesley's hometown of Frinton) and see what else lurked behind its genteel, respectable veneer.
 

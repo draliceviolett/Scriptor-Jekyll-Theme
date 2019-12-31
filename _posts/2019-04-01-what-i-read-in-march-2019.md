@@ -6,7 +6,7 @@ category: book-blog
 excerpt: "Everything apart from the books I planned, apparently."
 ---
 
-I read 16 books in March, but only read three of the [books I planned to read](/book-blog/2019/03/01/what-i-read-in-february-2019/). Hoping to get to <cite>The Lady's Guide to Petticoats and Piracy</cite> and <cite>The Wolves of Leninsky Prospekt</cite> this month instead! I read so much last month because some of the books I picked up were easy and/or exciting reads, so I got through them in a day or two.
+I read 16 books in March, but only read three of the [books I planned to read](/what-i-read-in-february-2019/). Hoping to get to <cite>The Lady's Guide to Petticoats and Piracy</cite> and <cite>The Wolves of Leninsky Prospekt</cite> this month instead! I read so much last month because some of the books I picked up were easy and/or exciting reads, so I got through them in a day or two.
 
 ![This is Going to Hurt, Wild Fire, The Stone Circle, MI5 and Me](/images/march-collage-1.jpg)
 
@@ -30,7 +30,7 @@ I read 16 books in March, but only read three of the [books I planned to read](/
 
 ![The Cut Out Girl, Seeking the Dead, Rubbernecker, All Out: the no-longer-secret stories of queer teens throughout the ages, The Cut Out Girl](/images/march-collage-3.jpg)
 
-[<cite>The Cut Out Girl</cite>, by Bart Van Es](/book-blog/2019/03/24/the-cut-out-girl-by-bart-van-es/) - 5*
+[<cite>The Cut Out Girl</cite>, by Bart Van Es](/the-cut-out-girl-by-bart-van-es/) - 5*
 
 <cite>Seeking the Dead</cite>, by Kate Ellis - 3*
 

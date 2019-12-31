@@ -6,7 +6,7 @@ category: book-blog
 excerpt: "Still rather slack on the review front."
 ---
 
-Another month of 2019 down! And once again, I haven't managed to write any reviews... but I did write a [blog post about graduating from my PhD](/phd-archive/2019/07/21/i-graduated). My PhD blog posts get a lot more traction than my book ones, but I really do have no PhD left to write about - the one downside of finally getting the thing out of my life.
+Another month of 2019 down! And once again, I haven't managed to write any reviews... but I did write a [blog post about graduating from my PhD](/i-graduated). My PhD blog posts get a lot more traction than my book ones, but I really do have no PhD left to write about - the one downside of finally getting the thing out of my life.
 
 I wasn't expecting ancient Welsh king Glendower (or his poet, Iolo) to be such a theme of my reading this month - I'd come across him in the first two books of Maggie Stiefvater's Raven Cycle, and then he unexpectedly popped up in the amazing <cite>Sleeper's Castle</cite>, by Barbara Erskine. He felt a bit like an old friend when I returned to the Raven Cycle not long after that!
 
@@ -16,7 +16,7 @@ I wasn't expecting ancient Welsh king Glendower (or his poet, Iolo) to be such a
 
 <cite>Crooked Kingdom</cite>, by Leigh Bardugo - 4.5*
 
-[<cite>The Herb of Grace</cite>, by Elizabeth Goudge](/book-blog/2019/09/08/the-eliot-chronicles-by-elizabeth-goudge) - 4*
+[<cite>The Herb of Grace</cite>, by Elizabeth Goudge](/the-eliot-chronicles-by-elizabeth-goudge) - 4*
 
 <cite>Tick Tock</cite>, by Mel Sherratt - 4*
 

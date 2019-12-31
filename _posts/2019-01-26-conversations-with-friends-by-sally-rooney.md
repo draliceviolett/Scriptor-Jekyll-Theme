@@ -8,7 +8,7 @@ excerpt: "<cite>Conversations with Friends</cite> isn't something I'd normally r
 
 ![Conversations with Friends](/images/conversations-with-friends.jpg)
 
-The power of fame: as with [<cite>Milkman</cite>, by Anna Burns](//book-blog/2019/01/12/milkman-by-anna-burns/), I probably wouldn't have picked up either of Sally Rooney's books based on the blurbs, but what with <cite>Ordinary People</cite> winning awards, and everyone raving about how great her writing is, I got serious FOMO.
+The power of fame: as with [<cite>Milkman</cite>, by Anna Burns](/milkman-by-anna-burns/), I probably wouldn't have picked up either of Sally Rooney's books based on the blurbs, but what with <cite>Ordinary People</cite> winning awards, and everyone raving about how great her writing is, I got serious FOMO.
 
 <cite>Conversations with Friends</cite> isn't something that would normally appeal to me because - as a prolific crime fiction reader - I'm drawn to novels stuffed with dramatic events and perilous situations. By contrast, this story is more of a running commentary of a formative period in 21-year-old main character Frances' life, during which she has an affair with an older married man, has to deal with her unreliable alcoholic father, and gets ill. The events in the novel are a series of jolts that keep you tripping along nicely. I read this book very quickly and enjoyed Rooney's lively and humorous writing style - I definitely snorted a few times!
 

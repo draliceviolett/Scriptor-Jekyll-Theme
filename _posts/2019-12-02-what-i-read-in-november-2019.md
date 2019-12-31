@@ -9,7 +9,7 @@ featured-image: /images/november-collage-1.jpg
 
 November has been a busy month, both book- and life-wise. I had lots of reservations come in at once, many of which were brand new books with queues on, so they jumped straight to the top of my TBR (that's my excuse for not reading all the books I said I would this month, anyway...). I'm not letting myself make any reservations on titles that are already available until January, by which time I'll have hopefully cleared the decks a little.
 
-I read 11 books around an intense Information Architecture (IA) project at work, a book pre-launch dinner for local booksellers and bloggers (an awesome night that I talk about in [my latest book review](/book-blog/2019/11/29/confessions-of-a-bookseller-by-shaun-bythell/)), and a Halestorm gig (NGL I'm still buzzing from it four days later). Oh, and a day on the library frontline, and my monthly writing group.
+I read 11 books around an intense Information Architecture (IA) project at work, a book pre-launch dinner for local booksellers and bloggers (an awesome night that I talk about in [my latest book review](/confessions-of-a-bookseller-by-shaun-bythell/)), and a Halestorm gig (NGL I'm still buzzing from it four days later). Oh, and a day on the library frontline, and my monthly writing group.
 
 ![The Sun Sister, The Light Years, Ninth House, Starve Acre](/images/november-collage-1.jpg)
 
@@ -17,7 +17,7 @@ I read 11 books around an intense Information Architecture (IA) project at work,
 
 I'm glad, though, that Electra has a less rose-tinted view of Pa Salt than her sisters. It's taken a while for one of them to raise that it's maybe a *little* weird and selfish for a rich single man to adopt babies from all over the world to fulfil his fantasy of having seven daughters named after the Pleiades, then be largely absent due to his mystery job while they're brought up by the housekeeper and sent to boarding school with no knowledge of where they came from. I'm looking forward to seeing some questions answered in the final book next year! - 4.5*
 
-<cite>The Light Years</cite>, by Elizabeth Jane Howard. First part of a family saga in the same vein as [Elizabeth Goudge's Eliot Chronicles](/book-blog/2019/09/08/the-eliot-chronicles-by-elizabeth-goudge/). It features similar tropes (men damaged by war, women frustrated by the limitations placed upon them by society/marriage/motherhood but nonetheless judging others with similar issues, an incredibly selfless and helpful unmarried daughter, children having their own separate society and concerns to name just a few) but - having been written 50 years later - is much darker, as the characters get to have sex, be lesbians, and overstep the mark in the creepy father/daughter relationship - 4*
+<cite>The Light Years</cite>, by Elizabeth Jane Howard. First part of a family saga in the same vein as [Elizabeth Goudge's Eliot Chronicles](/the-eliot-chronicles-by-elizabeth-goudge/). It features similar tropes (men damaged by war, women frustrated by the limitations placed upon them by society/marriage/motherhood but nonetheless judging others with similar issues, an incredibly selfless and helpful unmarried daughter, children having their own separate society and concerns to name just a few) but - having been written 50 years later - is much darker, as the characters get to have sex, be lesbians, and overstep the mark in the creepy father/daughter relationship - 4*
 
 <cite>Ninth House</cite>, by Leigh Bardugo - 4.5*
 
@@ -31,7 +31,7 @@ I'm glad, though, that Electra has a less rose-tinted view of Pa Salt than her s
 
 <cite>Shadow and Bone</cite>, by Leigh Bardugo - 4*
 
-[<cite>Confessions of a Bookseller</cite>, by Shaun Bythell](/book-blog/2019/11/29/confessions-of-a-bookseller-by-shaun-bythell/) - 5*
+[<cite>Confessions of a Bookseller</cite>, by Shaun Bythell](/confessions-of-a-bookseller-by-shaun-bythell/) - 5*
 
 ![Murder by the Minster, Dark Matter, The Lost Ones](/images/november-collage-3.jpg)
 

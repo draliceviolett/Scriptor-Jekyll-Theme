@@ -10,13 +10,13 @@ January felt like such a long month, so I'm not surprised I managed to fit in 11
 
 ![Dear Mrs Bird, A Shot in the Dark, The Night Stalker, Milkman](/images/january-collage-1.jpg)
 
-[<cite>Dear Mrs Bird</cite>, by AJ Pearce](/book-blog/2019/01/07/dear-mrs-bird-by-aj-pearce.html) - 5*
+[<cite>Dear Mrs Bird</cite>, by AJ Pearce](/dear-mrs-bird-by-aj-pearce.html) - 5*
 
 <cite>A Shot in the Dark</cite>, by Lynne Truss - 3.5*
 
 <cite>The Night Stalker</cite>, by Robert Bryndza - 4*
 
-[<cite>Milkman, by Anna Burns</cite>](/book-blog/2019/01/12/milkman-by-anna-burns.html) - 4.5*
+[<cite>Milkman, by Anna Burns</cite>](/milkman-by-anna-burns.html) - 4.5*
 
 ![The Raven Boys, The Facts of Life and Death, The Honours, Dark Water](/images/january-collage-2.jpg)
 
@@ -30,11 +30,11 @@ January felt like such a long month, so I'm not surprised I managed to fit in 11
 
 ![Conversations with Friends, Captcha Thief, You Were Gone](/images/january-collage-3.jpg)
 
-[<cite>Conversations with Friends</cite>, by Sally Rooney](/book-blog/2019/01/26/conversations-with-friends-by-sally-rooney.html)
+[<cite>Conversations with Friends</cite>, by Sally Rooney](/conversations-with-friends-by-sally-rooney/)
 
 <cite>Captcha Thief</cite>, by Rosie Claverton - 3.5*
 
-[<cite>You Were Gone</cite>, by Tim Weaver](/book-blog/2019/01/30/you-were-gone-by-tim-weaver.html) - 5*
+[<cite>You Were Gone</cite>, by Tim Weaver](/you-were-gone-by-tim-weaver/) - 5*
 
 ## Looking ahead...
 

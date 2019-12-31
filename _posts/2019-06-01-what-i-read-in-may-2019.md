@@ -6,7 +6,7 @@ category: book-blog
 excerpt: "Everything I intended to read, and more."
 ---
 
-May was a rare month where I actually [read everything I planned to](/book-blog/2019/05/01/what-i-read-in-april-2019)! Not that my TBR pile has shrunk a bit. Quite the opposite, in fact...
+May was a rare month where I actually [read everything I planned to](/what-i-read-in-april-2019)! Not that my TBR pile has shrunk a bit. Quite the opposite, in fact...
 
 I'm noticing some definite themes in the kinds of books I pick up: smart and unconventional teenage girls; stories-within-stories; the blending of past and present; strange goings-on; previous generations' sins and mistakes coming to haunt the present.
 
@@ -18,9 +18,9 @@ I'm noticing some definite themes in the kinds of books I pick up: smart and unc
 
 <cite>London Rules</cite>, by Mick Herron - 4.5*
 
-[<cite>All Among the Barley</cite>, by Melissa Harrison](/book-blog/2019/05/08/all-among-the-barley-by-melissa-harrison/) - 4.5*
+[<cite>All Among the Barley</cite>, by Melissa Harrison](/all-among-the-barley-by-melissa-harrison/) - 4.5*
 
-[<cite>The Bird in the Tree</cite>, by Elizabeth Goudge](/book-blog/2019/09/08/the-eliot-chronicles-by-elizabeth-goudge) - 4*
+[<cite>The Bird in the Tree</cite>, by Elizabeth Goudge](/the-eliot-chronicles-by-elizabeth-goudge) - 4*
 
 ![Finders Keepers, The Ghost Tree, Hell Bay, Pulp, The Rotters' Club](/images/may-collage-2.jpg)
 
@@ -30,7 +30,7 @@ I'm noticing some definite themes in the kinds of books I pick up: smart and unc
 
 <cite>Hell Bay</cite>, by Kate Rhodes - 4*
 
-[<cite>Pulp</cite>, by Robin Talley](/book-blog/2019/05/22/pulp-by-robin-talley) - 3.5*
+[<cite>Pulp</cite>, by Robin Talley](/pulp-by-robin-talley) - 3.5*
 
 <cite>The Rotters' Club</cite>, by Jonathan Coe - 4*
 

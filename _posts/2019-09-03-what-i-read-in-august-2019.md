@@ -7,11 +7,11 @@ excerpt: "I will review a book series this month. I've made notes and everything
 featured-image: /images/august-collage-1.jpg
 ---
 
-September is my favourite month because (paradoxically, considering the leaves begin to fall off the trees) it feels like things are starting up and coming back to life. As I explained the other month, [I'm in the right place for now](/phd-archive/2019/07/21/i-graduated/), but I'm still getting that sense of new beginnings.
+September is my favourite month because (paradoxically, considering the leaves begin to fall off the trees) it feels like things are starting up and coming back to life. As I explained the other month, [I'm in the right place for now](/i-graduated/), but I'm still getting that sense of new beginnings.
 
 It could be that because I spent so long in education, I just can't shake off those old September vibes. Maybe it's because a couple of my friends are starting jobs that are more or less exactly what they want and I'm getting a vicarious thrill. Perhaps I'm just excited to go on a (mini) holiday for the first time in yonks. Or I could just be looking forward to all the new books that are coming through!
 
-I didn't review any books in August, but [I did review a film](/phd-archive/2019/08/04/a-few-thoughts-on-three-identical-strangers/), but a book blog post is coming soon. I've written notes, so it has to happen.
+I didn't review any books in August, but [I did review a film](/a-few-thoughts-on-three-identical-strangers/), but a book blog post is coming soon. I've written notes, so it has to happen.
 
 ![The Closed Circle, Bellman & Black, Blacklands, Alex in Wonderland](/images/august-collage-1.jpg)
 

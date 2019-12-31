@@ -7,13 +7,13 @@ excerpt: "The quicker I write this, the sooner I can get back to reading."
 featured-image: /images/september-collage-1.jpg
 ---
 
-I read so many good books in September! A lot of them were new releases, [as predicted](/book-blog/2019/09/03/what-i-read-in-august-2019) - though I didn't manage to fit in <cite>Bone China</cite>, by Laura Purcell, because my reservation turned up while I was on holiday, and I wasn't back in the library until the 30th. Going on holiday did give me some much-appreciated extra reading time though, particularly when I was on/waiting for trains.
+I read so many good books in September! A lot of them were new releases, [as predicted](/what-i-read-in-august-2019) - though I didn't manage to fit in <cite>Bone China</cite>, by Laura Purcell, because my reservation turned up while I was on holiday, and I wasn't back in the library until the 30th. Going on holiday did give me some much-appreciated extra reading time though, particularly when I was on/waiting for trains.
 
 I'm currently just over 100 pages into <cite>Once Upon a River</cite> by Diane Setterfield, and it's wonderful so far - I can't wait to get this post done so I can get back to it!
 
 ![The Heart of the Family, The Warlow Experiment, The Art of Dying, Platform Seven, Diary of a Bookseller](/images/september-collage-1.jpg)
 
-[<cite>The Heart of the Family</cite>, by Elizabeth Goudge](/book-blog/2019/09/08/the-eliot-chronicles-by-elizabeth-goudge) - 3.5*
+[<cite>The Heart of the Family</cite>, by Elizabeth Goudge](/the-eliot-chronicles-by-elizabeth-goudge) - 3.5*
 
 <cite>The Warlow Experiment</cite>, by Alix Nathan - 3*
 
@@ -43,7 +43,7 @@ I'm currently just over 100 pages into <cite>Once Upon a River</cite> by Diane S
 
 <cite>Death Sentences</cite>, by Otto Penzler (ed.). Some absolute corkers of book-related short crime stories - John Connolly's contribution is a particular winner. Wish they'd left out the Joyce Carol Oates sample after her short story, though, as it was completely unrelated to the theme and confused me after the ambiguous ending of her tale - 4.5*
 
-[<cite>My Name Is Why</cite>, by Lemn Sissay](/book-blog/2019/10/27/my-name-is-why-by-lemn-sissay/) - 4*
+[<cite>My Name Is Why</cite>, by Lemn Sissay](/my-name-is-why-by-lemn-sissay/) - 4*
 
 ## Looking ahead...
 
