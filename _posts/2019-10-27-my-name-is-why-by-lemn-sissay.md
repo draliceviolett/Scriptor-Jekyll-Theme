@@ -4,6 +4,7 @@ layout: post
 title: "Review: My Name Is Why, by Lemn Sissay"
 category: book-blog
 excerpt: "In <cite>My Name Is Why</cite>, Lemn Sissay blends official documents and personal recollections and reflections to create a devastating narrative and damning indictment of the systems that failed him growing up. I found myself considering the nature of autobiography, and what makes this one particularly unusual and compelling."
+featured-image: /images/my-name-is-why.jpg
 ---
 
 ![My Name Is Why](/images/my-name-is-why.jpg)

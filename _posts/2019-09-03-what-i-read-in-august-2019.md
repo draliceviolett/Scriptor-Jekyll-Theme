@@ -4,6 +4,7 @@ layout: post
 title: "What I read in August 2019"
 category: book-blog
 excerpt: "I will review a book series this month. I've made notes and everything."
+featured-image: /images/august-collage-1.jpg
 ---
 
 September is my favourite month because (paradoxically, considering the leaves begin to fall off the trees) it feels like things are starting up and coming back to life. As I explained the other month, [I'm in the right place for now](/phd-archive/2019/07/21/i-graduated/), but I'm still getting that sense of new beginnings.

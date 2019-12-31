@@ -4,6 +4,7 @@ layout: post
 title: A few thoughts on Three Identical Strangers
 category: phd-archive
 excerpt: <cite>Three Identical Strangers</cite> is shocking and heartbreaking, and put me in mind of my own research methods and findings.
+featured-image: /images/three-identical-strangers.jpg
 ---
 
 ![Three Identical Strangers](/images/three-identical-strangers.jpg)

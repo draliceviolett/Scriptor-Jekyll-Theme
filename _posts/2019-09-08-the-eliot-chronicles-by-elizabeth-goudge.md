@@ -4,6 +4,7 @@ layout: post
 title: "Review: Elizabeth Goudge's Eliot Chronicles"
 category: book-blog
 excerpt: The three instalments of the Eliot Chronicles succeed in being both old-fashioned and surprisingly modern and relevant.
+featured-image: /images/the-eliot-chronicles.jpg
 ---
 
 ![The Bird in the Tree, The Herb of Grace, The Heart of the Family](/images/the-eliot-chronicles.jpg)

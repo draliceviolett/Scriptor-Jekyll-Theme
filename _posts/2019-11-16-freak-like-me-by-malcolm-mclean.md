@@ -4,6 +4,7 @@ layout: post
 title: "Review: Freak Like Me, by Malcolm McLean"
 category: book-blog
 excerpt: "In <cite>Freak Like Me</cite>, Malcolm McLean recreates the 90s as I remember it, without sugar-coating the aspects that weren't so good."
+featured-image: /images/freak-like-me.jpg
 ---
 
 ![Freak Like Me](/images/freak-like-me.jpg)

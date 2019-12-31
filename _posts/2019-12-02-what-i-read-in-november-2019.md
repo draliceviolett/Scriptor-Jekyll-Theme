@@ -4,6 +4,7 @@ layout: post
 title: "What I read in November 2019"
 category: book-blog
 excerpt: "I still have my reservations."
+featured-image: /images/november-collage-1.jpg
 ---
 
 November has been a busy month, both book- and life-wise. I had lots of reservations come in at once, many of which were brand new books with queues on, so they jumped straight to the top of my TBR (that's my excuse for not reading all the books I said I would this month, anyway...). I'm not letting myself make any reservations on titles that are already available until January, by which time I'll have hopefully cleared the decks a little.

@@ -4,6 +4,7 @@ layout: post
 title: "What I read in October 2019"
 category: book-blog
 excerpt: "Imagine how much I'd read if I didn't need to sleep quite so much."
+featured-image: /images/october-collage-1.jpg
 ---
 
 It's been a funny old month. I only managed to read three of the five books I hoped to, because I forgot quite how many books were due out. As many of them were library books, I had to prioritise reading them because other people had reservations on them!

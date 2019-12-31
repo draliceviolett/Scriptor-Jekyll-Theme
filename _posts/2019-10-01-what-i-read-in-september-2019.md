@@ -4,6 +4,7 @@ layout: post
 title: "What I read in September 2019"
 category: book-blog
 excerpt: "The quicker I write this, the sooner I can get back to reading."
+featured-image: /images/september-collage-1.jpg
 ---
 
 I read so many good books in September! A lot of them were new releases, [as predicted](/book-blog/2019/09/03/what-i-read-in-august-2019) - though I didn't manage to fit in <cite>Bone China</cite>, by Laura Purcell, because my reservation turned up while I was on holiday, and I wasn't back in the library until the 30th. Going on holiday did give me some much-appreciated extra reading time though, particularly when I was on/waiting for trains.

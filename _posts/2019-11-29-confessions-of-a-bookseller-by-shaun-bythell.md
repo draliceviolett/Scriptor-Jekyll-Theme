@@ -4,6 +4,7 @@ layout: post
 title: "Review: Confessions of a Bookseller, by Shaun Bythell"
 category: book-blog
 excerpt: "<cite>Confessions of a Bookseller</cite> is interesting and humorous, and shows that bibliophiles aren't necessarily a solitary bunch."
+featured-image: /images/confessions-of-a-bookseller.jpg
 ---
 
 ![Confessions of a Bookseller](/images/confessions-of-a-bookseller.jpg)

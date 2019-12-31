@@ -1,9 +1,10 @@
 ---
-date: 2019-12-31
+date: 2020-01-06
 layout: post
 title: "Review: Who Did You Tell?, by Lesley Kara"
 category: book-blog
 excerpt: "<cite>Who Did You Tell</cite> is a compelling story of recovery laced with menace."
+featured-image: /images/who-did-you-tell.jpg
 ---
 
 ![Who Did You Tell](/images/who-did-you-tell.jpg)
