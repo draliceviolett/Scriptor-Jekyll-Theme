@@ -25,7 +25,7 @@ I read 15 books in December, and I'm not surprised - the month seemed to go on f
 
 <cite>What a Carve Up!</cite>, by Jonathan Coe. Nearly 26 years old, but still so relevant to today that it could have been published last week. Really funny, I absolutely barrelled through it - 5*
 
-<cite>Who Did You Tell?</cite>, by Lesley Kara. Review to come on Monday 6 January - 4*
+[<cite>Who Did You Tell?</cite>, by Lesley Kara](/who-did-you-tell-by-lesley-kara/) - 4*
 
 <cite>Joe Country</cite>, by Mick Herron - 4*
 
