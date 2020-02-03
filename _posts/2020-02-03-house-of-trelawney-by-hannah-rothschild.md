@@ -20,4 +20,4 @@ One quibble I did have was that the characters kept referring to Apple as a 'new
 
 In <cite>House of Trelawney</cite>, Rothschild combines hilarity with tenderness, putting sympathetic characters in situations that reflect and parody the ridiculousness of modern life. I would recommend it to fans of Jonathan Coe, as well as anyone who enjoyed <cite>One Week</cite>, by Sebastian Faulks, and <cite>Capital</cite>, by John Lanchester.
 
-*<cite>House of Trelawney</cite> is published by Bloomsbury on 7 February 2020.*
+*<cite>House of Trelawney</cite> is published by Bloomsbury on 6 February 2020.*
