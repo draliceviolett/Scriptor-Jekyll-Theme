@@ -16,4 +16,4 @@ There were times where I felt events were handled a little too light-heartedly; 
 
 Although <cite>The Good, the Bad, and the Little Bit Stupid</cite> isn't my favourite book from this author, it nonetheless contains the elements of her writing that I love, and if you're looking for a quick, light-hearted read, you can't really go wrong by giving it a go.
 
-*<cite>The Good, The Bad and the Little Bit Stupid</cite> is published by Penguin on 65 March 2020.*
+*<cite>The Good, The Bad and the Little Bit Stupid</cite> is published by Penguin on 5 March 2020.*
