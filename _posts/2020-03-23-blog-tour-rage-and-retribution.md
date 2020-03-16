@@ -5,7 +5,9 @@ title: "Blog tour: Rage and Retribution by Lorraine Mace"
 excerpt: "<cite>Rage and Retribution</cite> is a solid page-turner that keeps you guessing."
 ---
 
-**This post is part of a blog tour organised by [damppebbles](https://damppebbles.com/). I received a free copy of the book in return for an honest review**
+![Rage and Retribution](/images/rage-and-retribution.jpg)
+
+**This post is part of a blog tour organised by [damppebbles](https://damppebbles.com/). I received a free copy of the book in return for an honest review. <cite>Rage and Retribution is out now from Accent Press in paperback, audio and digital formats.**
 
 > "Can two wrongs ever make a right?
 
