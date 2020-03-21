@@ -7,7 +7,7 @@ excerpt: "<cite>Rage and Retribution</cite> is a solid page-turner that keeps yo
 
 ![Rage and Retribution](/images/rage-and-retribution.jpg)
 
-**This post is part of a blog tour organised by [damppebbles](https://damppebbles.com/). I received a free copy of the book in return for an honest review. <cite>Rage and Retribution is out now from Accent Press in paperback, audio and digital formats.**
+**This post is part of a blog tour organised by [damppebbles](https://damppebbles.com/). I received a free copy of the book in return for an honest review. <cite>Rage and Retribution</cite> is out now from Accent Press in paperback, audio and digital formats.**
 
 > "Can two wrongs ever make a right?
 
@@ -25,6 +25,8 @@ I'm a complete sucker for a British police procedural, so the blurb for <cite>Ra
 
 The book opens with an anonymous first-person character chronicling how they're torturing men who have done bad things: who is 'Nemesis', and why have they made this their mission? In the second chapter, a plaque is unveiled at a new youth centre, but it's been graffitied with a slur against a prominent councillor: who did it, and is there any truth in their accusations that the councillor has been stealing public funds? And just how are these two events linked?
 
+<img src="/images/rage-and-retribution-200.jpg" alt="Rage and Retribution" style="float: right; margin-bottom: 10px; margin-left: 10px;">
+
 The connection, and much more besides, emerges over the course of the book as D.I. Paolo Sterling and his colleagues investigate. Under Mace's skilful direction, they have 'eureka!' moments regularly enough to keep you reading, but also encounter obstacles, dead ends, and red herrings that keep the story realistic and the reader guessing. In fact, there's so much going on that when the first corpse turns up, you suddenly realise you're already nearly halfway through the book! And then there's another dead body, and another, and another...
 
 This book includes a lot of the features I look for in a crime novel, particularly forensic investigation (in terms of cadavers and electronics), grit tempered by humour (prim busybody Clementine Towers provides great relief from the detectives' dark discoveries!), and well-developed characters. I did work out whodunit *slightly* before the police did, but I think that's a positive: it shows I felt compelled to really pay attention and engage with the story.
@@ -32,3 +34,5 @@ This book includes a lot of the features I look for in a crime novel, particular
 Even though I hadn't read any other books in the series, this didn't detract from my reading experience, as I was still able to get a great sense of Sterling's backstory, as well as the personalities and dynamics within the investigation team. But I will be reading the other books, as I'd like to spend more time with them and read about some of the past events they refer to!
 
 <cite>Rage and Retribution</cite> is a solid page-turner that keeps you guessing and I have added the rest of the series to my TBR list.
+
+![Rage and Retribution blog tour banner](/images/rage-and-retribution-banner.jpg)
