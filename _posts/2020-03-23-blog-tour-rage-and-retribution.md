@@ -3,6 +3,7 @@ date: 2020-03-23
 layout: post
 title: "Blog tour: Rage and Retribution by Lorraine Mace"
 excerpt: "<cite>Rage and Retribution</cite> is a solid page-turner that keeps you guessing."
+featured-image: /images/rage-and-retribution.jpg
 ---
 
 ![Rage and Retribution](/images/rage-and-retribution.jpg)
