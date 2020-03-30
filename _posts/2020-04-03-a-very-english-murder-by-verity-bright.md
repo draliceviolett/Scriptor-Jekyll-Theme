@@ -19,3 +19,5 @@ I also liked how warm and vivid this book was. Eleanor's unconventionality doesn
 There are a lot of humorous moments, but the interactions between Eleanor and Clifford are particularly amusing. At the beginning, he seems like a typical, stiff butler, and though he loosens up pretty quickly, he still retains some quirks, such as his frustration that Eleanor doesn't observe conventional mealtimes, and his tendency to provide extraneous information. In some ways they reminded me of M. R. C. Kasasian's March Middleton and Sidney Grice - although they're also very different in the sense that Eleanor is attractive with some amazing-sounding clothes, and Clifford is polite and pleasant.
 
 <cite>A Very English Murder</cite> is a warm and inviting murder mystery that keeps you turning the pages with intrigue, interesting characters, vivid scenes and humour. I can't wait to read more books about Eleanor, Clifford, Gladstone and the rest of their household.
+
+*<cite>A Very English Murder</cite> is published by Bookouture on 7 April 2020.*
