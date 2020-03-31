@@ -39,7 +39,7 @@ I'm starting a new job on Monday - will I still find the energy to read in the e
 
 <cite>Welcome to Night Vale</cite>, by Joseph Fink & Jeffrey Cranor - 3.5*
 
-<cite>Rage and Retribution</cite>, by Lorraine Mace - I'm on a blog tour (my very first!) for this one, full review to come on Monday 23 March. 4*
+[<cite>Rage and Retribution</cite>, by Lorraine Mace](/blog-tour-rage-and-retribution/) - I'm on a blog tour (my very first!) for this one! 4*
 
 <cite>Unbelievable</cite>, by T. Christian Miller & Ken Armstrong - good, but I thought the female gaze of the Netflix series was superior to the male-authored book. 4*
 
