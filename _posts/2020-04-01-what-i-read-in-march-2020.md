@@ -33,7 +33,7 @@ I am making an effort to up my reviewing game, though - I want to help authors w
 
 <cite>Retriever of Souls</cite>, by Lorraine Mace - 4*
 
-<cite>A Very English Murder</cite>, by Verity Bright - review to come on 3 April. 4*
+[<cite>A Very English Murder</cite>, by Verity Bright](/a-very-english-murder-by-verity-bright/) - 4*
 
 ![Time's Legacy, The Terrible Privacy of Maxwell Sim, Into Darkness](/images/march-2020-collage-3.jpg)
 
