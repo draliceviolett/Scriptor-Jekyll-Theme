@@ -41,7 +41,7 @@ I am making an effort to up my reviewing game, though - I want to help authors w
 
 <cite>The Terrible Privacy of Maxwell Sim</cite>, by Jonathan Coe - 4*
 
-<cite>Into Darkness</cite>, by T. J. Brearton - blog tour review to come on 9 April. 4*
+[<cite>Into Darkness</cite>, by T. J. Brearton](/blog-tour-into-darkness/) - 4*
 
 ## Looking ahead...
 
