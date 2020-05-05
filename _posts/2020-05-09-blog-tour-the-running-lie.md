@@ -28,6 +28,8 @@ The one criticism I would have is that we don't get to see Max doing much archae
 
 <cite>The Running Lie</cite> is a highly readable and enjoyable historical novel that really showcases the author's writing skills, and I can't wait to read the next instalment in 2022.
 
-Why not [join author Jennifer Young on Zoom for her launch party on 13 May at 6pm](https://zoom.us/j/94756462022)?
-
 ![The Running Lie blog tour banner](/images/the-running-lie-banner.jpg)
+
+Why not [join author Jennifer Young on Zoom for her launch party on 13 May at 6pm](https://us02web.zoom.us/webinar/register/WN_rIRvPRPKTZC1laB8AXfOAA)?
+
+![The Running Lie and Feet of Mothers launch banner](/images/the-running-lie-zoom.jpg)
