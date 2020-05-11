@@ -18,6 +18,6 @@ It also got me thinking about the use of the nanny's perspective in storytelling
 
 The sections from Hera's perspective add information and insights that Rita wouldn't be able to provide herself, even if her reliability is compromised as a troubled tween craving love and attention from her mother. One criticism I would have is that - while 12-year-olds are way more perceptive and emotionally intelligent than people give them credit for - some of the language she uses is a little beyond her years. Similarly, at one point Annie makes a cultural reference that doesn't really work for a character born in the early 2000s.
 
-<cite>The Glass House</cite> features all the elements I love to see in a book. It's also delightfully dark and filled with beautiful descriptions. With revelations and surprises right up until the final few pages, it's utterly unputdownable and incredibly satisfying. I will definitely be reading Chase's previous novel, <cite>Black Rabbit Hall</cite>, and following her career with interest!
+<cite>The Glass House</cite> features all the elements I love to see in a book. It's also delightfully dark and filled with beautiful descriptions. With revelations and surprises right up until the final few pages, it's utterly unputdownable and incredibly satisfying. I will definitely be reading Chase's previous novels, <cite>Black Rabbit Hall</cite> and <cite>The Vanishing of Audrey Wilde</cite>, and following her career with interest!
 
 *<cite>The Glass House</cite> is published by Penguin (Michael Joseph) on 14 May 2020.*
