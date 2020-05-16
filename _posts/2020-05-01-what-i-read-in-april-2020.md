@@ -35,15 +35,15 @@ As anticipated, in April I read about the same number of books I normally do, bu
 
 ![Finding Dora Maar, The Patience of a Dead Man, The Colour of Magic, Gallows Court, The Running Lie](/images/april-2020-collage-3.jpg)
 
-<cite>Finding Dora Maar</cite>, by Brigitte Benkemoun - review coming soon! 4.5*
+[<cite>Finding Dora Maar</cite>, by Brigitte Benkemoun](/finding-dora-maar-by-brigitte-benkemoun/) - 4.5*
 
-<cite>The Patience of a Dead Man</cite>, by Michael Clark - review coming soon! 4*
+[<cite>The Patience of a Dead Man</cite>, by Michael Clark](/blog-tour-the-patience-of-a-dead-man/) - 4*
 
 <cite>The Colour of Magic</cite>, by Terry Pratchett - thought it was about time I started reading some Discworld, and there was no queue on the library eBook. 4*
 
 <cite>Gallows Court</cite>, by Martin Edwards - 3*
 
-<cite>The Running Lie</cite>, by Jennifer Young - review coming soon! 5*
+[<cite>The Running Lie</cite>, by Jennifer Young](/blog-tour-the-running-lie/) - 5*
 
 ## Looking ahead...
 
