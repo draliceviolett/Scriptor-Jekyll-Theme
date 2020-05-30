@@ -2,7 +2,7 @@
 date: 2020-06-03
 layout: post
 title: "Review: The Ghost Tree by M. R. C. Kasasian"
-excerpt: M. R. C. Kasasian is on top form with his third Betty Church novel, seamlessly blending light and dark in a satisfying detective story where nothing is quite what it seems."
+excerpt: "M. R. C. Kasasian is on top form with his third Betty Church novel, seamlessly blending light and dark in a satisfying detective story where nothing is quite what it seems."
 featured-image: /images/the-ghost-tree.jpg
 ---
 
