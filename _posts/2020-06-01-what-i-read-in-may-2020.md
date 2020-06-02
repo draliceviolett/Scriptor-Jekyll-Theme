@@ -47,7 +47,7 @@ I actually read more in May than I would normally, including a whopping century-
 
 ![A Luminous Republic, The Van Apfel Girls Are Gone, Remain Silent](/images/may-2020-collage-4.jpg)
 
-<cite>A Luminous Republic</cite>, by Andrés Barba. Review coming soon - 4*
+[<cite>A Luminous Republic</cite>, by Andrés Barba](/a-luminous-republic-by-andres-barba/) - 4*
 
 <cite>The Van Apfel Girls Are Gone</cite>, by Felicity McLean. Review coming soon - 4.5*
 
