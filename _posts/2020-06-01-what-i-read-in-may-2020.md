@@ -41,7 +41,7 @@ I actually read more in May than I would normally, including a whopping century-
 
 [<cite>The Cat and the City</cite>, by Nick Bradley](/the-cat-and-the-city-by-nick-bradley/) - 3.5*
 
-<cite>The Ghost Tree</cite>, by M. R. C. Kasasian. Review coming soon - 5*
+[<cite>The Ghost Tree</cite>, by M. R. C. Kasasian](/the-ghost-tree-by-m-r-c-kasasian/) - 5*
 
 <cite>Devil Darling Spy</cite>, by Matt Killeen - 3.5*
 
