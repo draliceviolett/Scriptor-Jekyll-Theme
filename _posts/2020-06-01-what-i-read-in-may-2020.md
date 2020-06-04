@@ -49,7 +49,7 @@ I actually read more in May than I would normally, including a whopping century-
 
 [<cite>A Luminous Republic</cite>, by Andrés Barba](/a-luminous-republic-by-andres-barba/) - 4*
 
-<cite>The Van Apfel Girls Are Gone</cite>, by Felicity McLean. Review coming soon - 4.5*
+[<cite>The Van Apfel Girls Are Gone</cite>, by Felicity McLean](/the-van-apfel-girls-are-gone-by-felicity-mclean/) - 4.5*
 
 <cite>Remain Silent</cite>, by Susie Steiner. Another great, timely literary thriller and I LOVE Manon, though I think she needs to check her privilege sometimes - 4.5*
 
