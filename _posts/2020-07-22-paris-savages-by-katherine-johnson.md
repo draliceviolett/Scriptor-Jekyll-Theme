@@ -8,7 +8,7 @@ featured-image: /images/paris-savages.jpg
 
 ![Paris Savages](/images/paris-savages.jpg)
 
-<cite>Paris Savages</cite>, by Katherine Johnson, is based on a true story. We follow three Badtjala people - Bonny, Dorondera and Jurano - as they journey from K'gari (Fraser Island) to Europe, where they're expected to perform for curious crowds at 'ethnic shows' (or 'human zoos') and take part in intrusive and degrading scientific experiments. We aren't privy to Dorondera and Jurano's motivations for travelling to Europe, but Bonny has a definite aim: to personally meet Queen Victoria and ask her to grant protection to his people.
+<cite>Paris Savages</cite>, by Katherine Johnson, is based on a true story. We follow three Badtjala people - young men Bonny and Jurano, and young woman Dorondera - as they journey from K'gari (Fraser Island) to Europe, where they're expected to perform for curious crowds at 'ethnic shows' (or 'human zoos') and take part in intrusive and degrading scientific experiments. We aren't privy to Dorondera and Jurano's motivations for travelling to Europe, but Bonny has a definite aim: to personally meet Queen Victoria and ask her to grant protection to his people.
 
 The trip is arranged by German scientist Louis Müller, who has been living on K'gari for the last few years with his 16-year-old daughter, Hilda. Having been on the island from a young age, Hilda is well-versed in the Badtjala language and culture and considers the islanders her friends. However, as she witnesses their treatment in Europe and tragic events occur, she comes to realise how naïve she has been, and that her father wasn't the honourable man she thought he was.
 
