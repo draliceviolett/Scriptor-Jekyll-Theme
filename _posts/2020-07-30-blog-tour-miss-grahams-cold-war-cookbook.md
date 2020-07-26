@@ -30,7 +30,7 @@ I learned a lot from this meticulously-researched book. While I previously had s
 
 I was surprised to read that so many people secretly held on to Nazi ideology and wanted to go back to how things were. I was also shocked that some British, American and Russian people weren't interested in bringing prominent Nazis to justice. Instead, they wanted to employ them so they could utilise their skills and knowledge of nuclear and biological warfare in the developing Cold War.
 
-Food plays a huge part in this book beyond the coded recipes. Mealtimes are important to the story, as they're the main time Edith meets with other people and moves events along, whether she's being recruited, passing on or gathering information, or simply spending time and developing relationships with friends and love interests.
+Food plays a huge part in this book beyond the coded recipes. Mealtimes are important to the story, as they're the main time Edith meets with other people and moves the plot along, whether she's being recruited, passing on or gathering information, or simply spending time and developing relationships with friends and love interests.
 
 Many of the chapters begin with descriptions of the food eaten by the characters over the coming pages. Some of these are the mouth-watering fare of hotels, restaurants and cafés, while others are the ration-restricted dinners of Edith's billet, the institutional food of the mess hall, or the meals scratched together by the desperate refugees Edith comes into contact with. This also highlights the levels of deprivation in Germany at this time, and offers the reader an insight into foods from different countries and cultures.
 
