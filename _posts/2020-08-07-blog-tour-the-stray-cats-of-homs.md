@@ -2,7 +2,7 @@
 date: 2020-08-07
 layout: post
 title: "Blog tour: The Stray Cats of Homs by Eva Nour"
-excerpt: "<cite>The Stray Cats of Homs</cite> is a shocking and moving account of an ordinary young man's experiences of the war in Syria."
+excerpt: "<cite>The Stray Cats of Homs</cite> is a shocking, moving and unforgettable account of an ordinary young man's experiences of the war in Syria."
 featured-image: /images/the-stray-cats-of-homs.jpg
 ---
 
@@ -32,6 +32,6 @@ There are occasional italicised passages in the book which indicate that Sami is
 
 The author also notes that "several characters and situations are fictitious" but I didn't feel cheated by this, as this is done in order to protect real people from the repercussions of Sami telling his story, and presumably such characters and situations nonetheless represent real experiences of life in Syria.
 
-<cite>The Stray Cats of Homs</cite> is a shocking and moving account of an ordinary young man's experiences of the war in Syria.
+<cite>The Stray Cats of Homs</cite> is a shocking, moving and unforgettable account of an ordinary young man's experiences of the war in Syria.
 
 ![The Stray Cats of Homs blog tour banner](/images/the-stray-cats-of-homs-banner.jpg)

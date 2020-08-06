@@ -51,11 +51,11 @@ When I wasn't reading more books than I realised, I watched <cite>Little Fires E
 
 [<cite>The Space Between Worlds</cite>, by Micaiah Johnson](/the-space-between-worlds-by-micaiah-johnson/) - 4.5*
 
-<cite>The Whispering House</cite>, by Elizabeth Books - review coming soon! 3*
+[<cite>The Whispering House</cite>, by Elizabeth Brooks](/the-whispering-house-by-elizabeth-brooks/) - 3*
 
 <cite>The Lantern Men</cite>, by Elly Griffiths - I reserved this from the library before lockdown and I finally got to borrow it! Well worth the wait. 4.5*
 
-<cite>The Many Lives of Heloise Starchild</cite>, by John Ironmonger - review coming soon! 4.5*
+[<cite>The Many Lives of Heloise Starchild</cite>, by John Ironmonger](/the-many-lives-of-heloise-starchild-by-john-ironmonger/) - 4.5*
 
 <cite>The Stray Cats of Homs</cite>, by Eva Noir - review coming soon! 4*
 
