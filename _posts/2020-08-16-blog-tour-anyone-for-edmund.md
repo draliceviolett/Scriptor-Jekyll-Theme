@@ -34,4 +34,4 @@ What's more, Marina and her team are adding to Edmund's *necrobiography* with th
 
 <cite>Anyone for Edmund</cite> is a pin-sharp satire that highlights how history is continually rewritten, re-evaluated, and used to varying ends.
 
-![Anyone for Edmund? blog tour banner](/images/anyone-for-edmund.jpg)
+![Anyone for Edmund? blog tour banner](/images/anyone-for-edmund-banner.jpg)
