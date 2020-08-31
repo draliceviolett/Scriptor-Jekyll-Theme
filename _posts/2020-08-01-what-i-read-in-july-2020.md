@@ -47,7 +47,7 @@ When I wasn't reading more books than I realised, I watched <cite>Little Fires E
 
 [<cite>Miss Graham's Cold War Cookbook</cite>, by Celia Rees](/blog-tour-miss-grahams-cold-war-cookbook/) - sublime. 5*
 
-![The Space Between Worlds, The Whispering House, The Lantern Men, The Many Lives of Heloise Starchild, The Stray Cats of Homes](/images/july-2020-collage-4.jpg)
+![The Space Between Worlds, The Whispering House, The Lantern Men, The Many Lives of Heloise Starchild, The Stray Cats of Homs](/images/july-2020-collage-4.jpg)
 
 [<cite>The Space Between Worlds</cite>, by Micaiah Johnson](/the-space-between-worlds-by-micaiah-johnson/) - 4.5*
 
@@ -57,7 +57,7 @@ When I wasn't reading more books than I realised, I watched <cite>Little Fires E
 
 [<cite>The Many Lives of Heloise Starchild</cite>, by John Ironmonger](/the-many-lives-of-heloise-starchild-by-john-ironmonger/) - 4.5*
 
-<cite>The Stray Cats of Homs</cite>, by Eva Noir - review coming soon! 4*
+[<cite>The Stray Cats of Homs</cite>, by Eva Nour](/blog-tour-the-stray-cats-of-homs/) - 4*
 
 ## Looking ahead...
 
