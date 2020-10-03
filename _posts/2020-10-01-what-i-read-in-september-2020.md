@@ -49,7 +49,7 @@ I read another 17 books in September, and some of them were amaaazing. And I pro
 
 <cite>Summer</cite>, by Ali Smith - 4.5*
 
-<cite>Homecoming</cite>, by Colin Grant - review coming soon! 4*
+[<cite>Homecoming</cite>, by Colin Grant](/homecoming-by-colin-grant/) - 4*
 
 ## Looking ahead...
 
