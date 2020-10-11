@@ -1,5 +1,5 @@
 ---
-date: 2020-10-11
+date: 2020-10-21
 layout: post
 title: "Blog tour: The Nesting, by C. J. Cooke"
 excerpt: "<cite>The Nesting</cite> is an atmospheric and addictive thriller infused with Norse folklore."
