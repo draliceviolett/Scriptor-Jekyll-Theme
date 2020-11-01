@@ -39,7 +39,7 @@ I read 17 books again in October. Alas, two of the books I said I would read in 
 
 <cite>It Takes Blood and Guts</cite>, by Skin with Lucy O'Brien - so interesting to read the stories behind the songs, and how this icon got where she is. 5*
 
-![Seven Kinds of People You Find in Bookshops, The Coral Bride, The Lying Life of Adults, Murder under the Microscope, The Wrong Sort To Die](/images/october-2020-collage-4.jpg)
+![Seven Kinds of People You Find in Bookshops, The Coral Bride, The Lying Life of Adults, Murder under the Microscope](/images/october-2020-collage-4.jpg)
 
 <cite>Seven Kinds of People You Find in Bookshops</cite>, by Shaun Bythell - review coming soon! 4.5*
 
@@ -48,8 +48,6 @@ I read 17 books again in October. Alas, two of the books I said I would read in 
 <cite>The Lying Life of Adults</cite>, by Elena Ferrante - I actually liked this better than the Neapolitan books, because it focuses on a short period in adolescence rather than taking a broad view of the character's whole life. 4*
 
 <cite>Murder under the Microscope</cite>, by Jim Fraser - quite interesting, but I've read more engaging books on the subject. 3.5*
-
-<cite>The Wrong Sort To Die</cite>, by Paula Harmon - review coming soon! 4*
 
 ## Looking ahead...
 
