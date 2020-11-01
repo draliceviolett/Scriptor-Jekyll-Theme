@@ -7,7 +7,7 @@ excerpt: "Good intentions etc. etc."
 featured-image: /images/october-2020-collage-1.jpg
 ---
 
-I read 17 books again in October. Alas, two of the books I said I would read in [last month's post](/what-i-read-in-september-2020/) weren't among them! I had quite a few library books I had to get through before they expired, as well as three blog tours in one week, so naturally those took priority. But November is another month!
+I read 16 books in October. Alas, two of the books I said I would read in [last month's post](/what-i-read-in-september-2020/) weren't among them! I had quite a few library books I had to get through before they expired, as well as three blog tours in one week, so naturally those took priority. But November is another month!
 
 ![The Postscript Murders, Solutions and Other Problems, The Same Ledge, The Snow Fox Diaries](/images/october-2020-collage-1.jpg)
 
