@@ -27,3 +27,5 @@ Tom gets off pretty lightly in terms of disruption from his four- and seven-year
 It's not all comedy disasters, though - there are some really tender and tense sections as relationships are tested to their limits and the characters are reminded of the reason for the lockdown: a virus that could take away their loved ones. We see Tom's friends' strong marriage shaken as they can't escape from one another, Tom worries whether his budding romance with Amanda can survive as they're stuck apart, and he painfully regrets being snippy with his mum when she falls ill. You can forgive the characters for their behaviour when they're under so much pressure, and hope they'll make it through okay.
 
 <cite>The Lockdown Diary of Tom Cooper</cite> is a very humorous take on a strange time in all our lives. I hadn't read the previous book in the series, <cite>The Rebuilding of Tom Cooper</cite>, but I've bought it and will be reading it to bring some much-needed humour and lightness to this new lockdown.
+
+![The Lockdown Diary of Tom Cooper blog tour banner](/images/the-lockdown-diary-of-tom-cooper-banner.jpg)
