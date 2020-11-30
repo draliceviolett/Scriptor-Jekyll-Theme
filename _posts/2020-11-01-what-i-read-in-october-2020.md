@@ -41,9 +41,9 @@ I read 16 books in October. Alas, two of the books I said I would read in [last 
 
 ![Seven Kinds of People You Find in Bookshops, The Coral Bride, The Lying Life of Adults, Murder under the Microscope](/images/october-2020-collage-4.jpg)
 
-<cite>Seven Kinds of People You Find in Bookshops</cite>, by Shaun Bythell - review coming soon! 4.5*
+[<cite>Seven Kinds of People You Find in Bookshops</cite>, by Shaun Bythell](/seven-kinds-of-people-you-find-in-bookshops/) - 4.5*
 
-<cite>The Coral Bride</cite>, by Roxanne Bouchard, translated by David Warriner - review coming soon! 4.5*
+[<cite>The Coral Bride</cite>, by Roxanne Bouchard, translated by David Warriner](/blog-tour-the-coral-bride/) - 4.5*
 
 <cite>The Lying Life of Adults</cite>, by Elena Ferrante - I actually liked this better than the Neapolitan books, because it focuses on a short period in adolescence rather than taking a broad view of the character's whole life. 4*
 
