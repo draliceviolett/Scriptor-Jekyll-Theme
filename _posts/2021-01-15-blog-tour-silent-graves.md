@@ -28,7 +28,7 @@ At the same time, Whitney doesn't suffer fools gladly, is confident in her abili
 
 Whitney's new sergeant, Brian Chapman, is a case in point. He thinks he's all that, has some difficulty with his listening skills, can be a bit heavy-handed in interviews, and thinks he knows better than the experts. It's to Whitney's credit that she handles this challenge so well, asserting her authority and calling him out when he doesn't follow her instructions, but also remaining professional in her reactions to him, and giving him a chance to take her feedback on board and do better next time.
 
-I hadn't come across this ten-book series before, but on the strength of <cite>Silent Graves</cite> and the interest I now have in the characters and their backstories, I've now added the first one, <cite>Deadly Games</cite>, to my TBR list. I'm also looking forward to seeing more of the fictional town of Lenchester and its surroundings - the parts of it I saw in this instalment were really well-developed and easy to picture.
+I hadn't come across this nine-book series before, but on the strength of <cite>Silent Graves</cite> and the interest I now have in the characters and their backstories, I've now added the first one, <cite>Deadly Games</cite>, to my TBR list. I'm also looking forward to seeing more of the fictional town of Lenchester and its surroundings - the parts of it I saw in this instalment were really well-developed and easy to picture.
 
 <cite>Silent Graves</cite> is a well-written and enjoyable police procedural with a likeable, compassionate main character.
 
