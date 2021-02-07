@@ -1,7 +1,7 @@
 ---
 date: 2021-02-06
 layout: post
-title: "Blog tour: Fake"
+title: "Blog tour: Fake by Roz Kay"
 excerpt: "<cite>Fake</cite> is a lot of fun, with brilliant use of language and larger-than-life characters."
 featured-image: /images/fake.jpg
 ---
