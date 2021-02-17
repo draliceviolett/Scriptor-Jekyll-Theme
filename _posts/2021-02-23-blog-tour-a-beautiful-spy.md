@@ -43,4 +43,4 @@ Minnie is therefore a complex character who evolves, as we all do, over time. Th
 
 <cite>A Beautiful Spy</cite> is realistic, tense, and full of nuance.
 
-![The One Hundred Years of Lenni and Margot blog tour banner](/images/the-one-hundred-years-of-lenni-and-margot-banner.jpg)
+![A Beautiful Spy blog tour banner](/images/a-beautiful-spy-banner.jpg)
