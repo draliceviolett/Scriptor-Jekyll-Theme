@@ -12,7 +12,7 @@ featured-image: /images/the-fractured-globe.jpg
 
 > "Nature? Nurture? Or just plain luck?
 
-> "Single mums Tia and Kay, meet when their sons are born on the same day.
+> "Single mums Tia and Kay meet when their sons are born on the same day.
 
 > "Tia is a product of the welfare system but wants a better life for her son. Her entrapment by her manipulative and controlling boyfriend in the world of drink, drugs, crime and enforced prostitution suggests otherwise. Is she a ‘born devil’ or can she change and break free?
 
@@ -32,13 +32,11 @@ Tia is also in her late teens when she has Luke, on the same day. Right from the
 
 Kay is keen for Tia to move on after a few months, and becomes suspicious when she brings home money and high-value items she claims to have earned through cleaning jobs or picked up at second-hand sales. When it becomes clear she's outstayed her welcome, Tia rapidly runs out of options and her and Luke's lives end up in a terrible mess.
 
-Tia's story raises questions about nature, nurture, and luck. It's really not her fault that she had such an unsettled childhood or got caught up in drink and prostitution thanks to Jake. It doesn't help that so many of the people she encounters jump to conclusions about her and treat her poorly based on their assumptions, perpetuating her situation. The author treats Tia with understanding and sympathy, so you can see why she turns to theft when she has no other way of making money, and doesn't want to apply for benefits if it means she might lose her child.
+Tia's story raises questions about nature, nurture, and luck. It's really not her fault that she had such an unsettled childhood or got caught up in drink and prostitution thanks to Jake. It's sheer bad luck that Jake finds Tia and Luke out on the streets, and it's clear from the threats he makes that she has no choice but to go back with him. It doesn't help that so many of the people she encounters jump to conclusions about her and treat her poorly based on their assumptions, perpetuating her situation.
 
-It's sheer bad luck that Jake finds Tia and Luke out on the streets, and it's clear from the threats he makes that she has no choice but to go back with him. At the same time, there are parts of the book where it is possible for Tia to make better choices and it's on her that she fails to do so, with awful consequences. I did feel really sad to watch her initial resolve to be a good mother wither away.
+The author treats Tia with understanding and sympathy, so you can see the reasoning behind some of her decisions, even if you don't agree with them yourself. Even so, there are parts of the book where it is possible for Tia to make better choices and it's on her that she fails to do so, with awful consequences. I did feel really sad to watch her initial resolve to be a good mother wither away.
 
-While Tia is ultimately responsible for some of the things she does, it's easy to say 'why didn't she go to the police/apply for accommodation?' when you haven't had her particular experiences of officialdom or danger, and this is something Fish makes very clear. Kay has better choices because she never faces any threat of physical violence or having her child taken from her, and is able to build a functional support network in contrast to the nasty individuals Tia comes to rely upon.
-
-Although things go so horribly wrong for Tia and Luke, <cite>The Fractured Globe</cite> isn't necessarily a gloomy read. Without giving away too much of the story, there is an overall message of hope and redemption. While some characters, such as the midwives and Kay's mum, are judgmental and snobby, we also see characters, such as Kay's aunt Janet, who make a real effort to understand and help people like Tia.
+Although things go so horribly wrong for Tia and Luke, <cite>The Fractured Globe</cite> isn't necessarily a gloomy read. Without giving away too much of the story, there is an overall message of hope and redemption. While some characters, such as the midwives and Kay's mum, are judgmental and snobby, we also see characters, such as Kay's aunt Janet, who believe in second chances and make a real effort to understand and help people like Tia.
 
 <cite>The Fractured Globe</cite> is gritty, moving and sympathetic.
 
