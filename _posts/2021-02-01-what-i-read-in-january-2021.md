@@ -39,9 +39,9 @@ I finished watching <cite>Ghosts</cite> and series one of <cite>Borgen</cite>, b
 
 <cite>The Man Who Mistook His Wife for a Hat and other clinical tales</cite>, by Oliver Sacks - my first Oliver Sacks book, and it definitely won't be my last! Humane and witty, but also tragic and moving in places. 5*
 
-<cite>Fake</cite>, by Roz Kay - review coming soon. 4*
+[<cite>Fake</cite>, by Roz Kay](/blog-tour-fake/) - 4*
 
-<cite>The Last Snow</cite>, by Stina Jackson - review coming soon. 4*
+[<cite>The Last Snow</cite>, by Stina Jackson](/blog-tour-the-last-snow/) - 4*
 
 <cite>My Dark Vanessa</cite>, by Kate Elizabeth Russell. A skilful and compassionate telling of a complex and sad story, from the point of view of a very damaged character who is just beginning to discover and address the reality and extent of her inner wreckage - 5*
 
