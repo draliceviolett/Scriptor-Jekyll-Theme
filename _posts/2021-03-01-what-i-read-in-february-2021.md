@@ -9,7 +9,7 @@ featured-image: /images/february-2021-collage-1.jpg
 
 I read another 13 books this month, and probably added more than that to my TBR pile because, dammit, I keep coming across so many awesome-sounding books and what am I supposed to do, ignore them?
 
-When I wasn't reading, in February I was mainly watching <cite>I May Destroy You</cite>, season two of <cite>Borgen</cite>, <cite>The Murders at White House Farm</cite> and <cite>Hinterland</cite>, and keeping up with <cite>WandaVision</cite> and <cite>Unforgotten</cite> (WHY is ITV Hub the only player that won't let you go back to the start of a live TV show?!). I'm still very much playing <cite>The Sims 4</cite> and writing (well, mostly editing lately).
+When I wasn't reading, in February I was mainly watching <cite>I May Destroy You</cite>, season two of <cite>Borgen</cite>, <cite>BoJack Horseman</cite>, <cite>The Murders at White House Farm</cite> and <cite>Hinterland</cite>, and keeping up with <cite>WandaVision</cite> and <cite>Unforgotten</cite> (WHY is ITV Hub the only player that won't let you go back to the start of a live TV show?!). I'm still very much playing <cite>The Sims 4</cite> and writing (well, mostly editing lately).
 
 I've also been getting into Les Mills barre classes. I'm not about to discover any hitherto unsuspected poise and grace, but I am getting enjoyment and a sense of achievement from them - and there's no pressure to keep up or do things exactly right because it's online.
 

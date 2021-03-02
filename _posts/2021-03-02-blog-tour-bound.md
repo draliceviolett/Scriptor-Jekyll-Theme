@@ -25,3 +25,5 @@ In fact, it's really refreshing how Symon portrays the flipside of the 'troubled
 We also see Sam's humanity in her interactions with her family and the nuances in her personal relationships, as well as the way she regards even the most heinous criminals as people who deserve due diligence when they're accused of a crime. I enjoyed her interactions with the two villains' wives (who are marvellously well-described!), which start off frosty but warm up when they realise she's searching for evidence that disproves their husbands' guilt.
 
 <cite>Bound</cite> is enjoyable, clever and refreshing.
+
+![Bound blog tour banner](/images/bound-banner.jpg)
