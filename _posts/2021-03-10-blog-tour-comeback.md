@@ -10,7 +10,7 @@ featured-image: /images/comeback.jpg
 
 **This post is part of a blog tour organised by [damppebbles](https://damppebbles.com/). I received a free copy of the book in return for an honest review.**
 
-> Genie has everything – a BRIT award, a singing career, the attention of the press and Oliver Fox, a pretty boy who looks good on her arm.
+> "Genie has everything – a BRIT award, a singing career, the attention of the press and Oliver Fox, a pretty boy who looks good on her arm.
 
 > "Until he dies.
 
@@ -20,7 +20,7 @@ featured-image: /images/comeback.jpg
 
 > "The afterlife isn’t the most comfortable of places for anyone who’s still alive, but Genie’s not going to take any crap from the dead – she’s got years of experience in the music business.
 
-> "Sometimes going to Hell and back takes a lifetime...
+> "Sometimes going to Hell and back takes a lifetime..."
 
 <img src="/images/comeback-200.jpg" alt="Comeback" style="float: right; margin-bottom: 10px; margin-left: 10px;">
 
