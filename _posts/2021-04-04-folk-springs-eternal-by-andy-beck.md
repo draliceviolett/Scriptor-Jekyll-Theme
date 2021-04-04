@@ -2,7 +2,7 @@
 date: 2021-04-04
 layout: post
 title: "Review: Folk Springs Eternal by Andy Beck"
-excerpt: "<cite>Folk Springs Eternal</cite> is lively and engaging, with positive messages."
+excerpt: "<cite>Folk Springs Eternal</cite> is exciting and dynamic, with realistic characters and positive messages."
 ---
 
 **I received a free copy of this book from the author in return for an honest review.**
