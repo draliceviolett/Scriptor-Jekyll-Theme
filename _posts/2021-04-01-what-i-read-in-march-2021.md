@@ -37,11 +37,11 @@ I read 16 books in March, which is a lot, even by my standards! But it was a lon
 
 <cite>Slough House</cite>, by Mick Herron - 4.5*
 
-<cite>The Lost Hours</cite>, by Susan Lewis - review coming soon! 4*
+[<cite>The Lost Hours</cite>, by Susan Lewis](/blog-tour-the-lost-hours) - 4*
 
 ![Because You're Mine, The Rebuilding of Tom Cooper, Confessions of a Forty-Something F##k Up, The Girl from the Hermitage](/images/march-2021-collage-4.jpg)
 
-<cite>Because You're Mine</cite>, by Luna Miller - review coming soon! 4*
+[<cite>Because You're Mine</cite>, by Luna Miller](/blog-tour-because-youre-mine/) - 4*
 
 <cite>The Rebuilding of Tom Cooper</cite>, by Spencer Brown - 4.5*
 
