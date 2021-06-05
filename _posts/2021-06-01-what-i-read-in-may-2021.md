@@ -35,9 +35,9 @@ My mental health hasn't been great again this month, but I've been continuing to
 
 [<cite>A Public Murder</cite>, by Antoinette Moses](/blog-tour-a-public-murder/) - 4*
 
-<cite>Everything Happens for a Reason</cite>, by Katie Allen - review coming soon! 4.5*
+[<cite>Everything Happens for a Reason</cite>, by Katie Allen](/blog-tour-everything-happens-for-a-reason/) - 4.5*
 
-<cite>Love and Miss Harris</cite>, by Peter Maughan - review coming soon! 4*
+[<cite>Love and Miss Harris</cite>, by Peter Maughan](/blog-tour-love-and-miss-harris/) - 4*
 
 ## Looking ahead...
 
