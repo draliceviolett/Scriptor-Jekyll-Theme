@@ -1,8 +1,8 @@
 ---
 date: 2021-06-25
 layout: post
-title: "Blog tour: One Last Time, by Helga Flatland, translated by Rosie Hedger"
-excerpt: "<cite>One Last Time </cite> is moving, insightful and very human."
+title: "Blog tour: One Last Time by Helga Flatland, translated by Rosie Hedger"
+excerpt: "<cite>One Last Time</cite> is moving, insightful and very human."
 featured-image: /images/one-last-time.jpg
 ---
 
