@@ -31,7 +31,7 @@ Another challenging month, as my brain continues to fire crap at itself. I read 
 
 [<cite>A Cut for a Cut</cite>, by Carol Wyer](/blog-tour-a-cut-for-a-cut/) - 4*
 
-<cite>The Beresford</cite>, by Will Carver - review coming soon! 5*
+[<cite>The Beresford</cite>, by Will Carver](/blog-tour-the-beresford/) - 5*
 
 ## Looking ahead...
 
