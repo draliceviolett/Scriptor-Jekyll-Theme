@@ -39,4 +39,4 @@ Another challenging month, as my brain continues to fire crap at itself. I read 
 
 This month I'm planning to read the new releases from three of my go-to crime authors - Mark Billingham, Mel Sherratt, and Doug Johnstone. Having enjoyed my first Will Carver book, <cite>The Beresford</cite>, for a blog tour, I also intend to read the copy of <cite>Good Samaritans</cite> that's been sitting on my Kindle for an embarrassingly long time.
 
-I didn't get round to reading the Lucinda Riley's <cite>The Missing Sister</cite> as planned last month, so I'm going to try to get to it this month. I was so sad to read about her death from cancer shortly after this final instalment in a series I love was published.
+I didn't get round to reading Lucinda Riley's <cite>The Missing Sister</cite> as planned last month, so I'm going to try to get to it this month. I was so sad to read about her death from cancer shortly after this final instalment in a series I love was published.
