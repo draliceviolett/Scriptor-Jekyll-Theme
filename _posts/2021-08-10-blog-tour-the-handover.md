@@ -22,6 +22,8 @@ featured-image: /images/the-handover.jpg
 
 > "They soon discover they have a lot more in common than they realised... and their investigations uncover more than just the truth. Could they have feelings for one another?"
 
+<img src="/images/the-handover-200.jpg" alt="The Handover" style="float: right; margin-bottom: 10px; margin-left: 10px;">
+
 I absolutely whizzed through <cite>The Handover</cite>, by David M. Barnett, and felt rather bereft after finishing it. At its heart, it's a sweet love story of two museum security guards, Daisy and Nate, whose relationship builds as they take it upon themselves to discover who's taking objects from the displays, only to replace them a few days later. For much of the book, they only interact for five minutes at a time - the titular 'handover' - but they're increasingly on each other's minds outside of work and do end up spending some more lengthy periods of time together.
 
 While this is a humorous and uplifting book on the whole, both characters are damaged in their own ways and the author deals with a number of serious issues with sensitivity and a light touch. Nate grew up in a violent home and is divorced with a ten-year-old son, Ben, who has fallen in with a gang. Daisy is weighed down by something she did when she was nine that she has always thought made her a bad person, and outside of work, she and her sister Rosie care for their mother, who has cancer.
