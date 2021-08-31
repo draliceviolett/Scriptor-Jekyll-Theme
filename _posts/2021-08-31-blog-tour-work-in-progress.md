@@ -30,4 +30,4 @@ I found Keith the most entertaining character. None of the writers are at all se
 
 <cite>Work in Progress</cite> is an enjoyable and funny novel about a group of eccentric writers.
 
-![Work in Progress blog tour banner](/images/work-in-progress.jpg)
+![Work in Progress blog tour banner](/images/work-in-progress-banner.jpg)
