@@ -31,7 +31,7 @@ Another ten books read in another difficult month mentally. Not all the ones I p
 
 <cite>Rabbit Hole</cite>, by Mark Billingham - 4*
 
-<cite>A Young Lady's Miscellany</cite>, by Auriel Roe - review coming soon! 4*
+[<cite>A Young Lady's Miscellany</cite>, by Auriel Roe](/a-young-ladys-miscellany/) - 4*
 
 ## Looking ahead...
 
