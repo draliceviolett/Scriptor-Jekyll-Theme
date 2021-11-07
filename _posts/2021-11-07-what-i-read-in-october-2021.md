@@ -17,7 +17,7 @@ I seem to be reading one book less each month. At this rate, in April 2022 I'll 
 
 <cite>Mary Swann</cite>, by Carol Shields - 4.5*
 
-<cite>Dark Secrets</cite>, by Sally Rigby - 4*
+[<cite>Dark Secrets</cite>, by Sally Rigby](/blog-tour-dark-secrets/) - 4*
 
 ![Happenstance, Ellie and the Harpmaker, Wish You Weren't Here](/images/october-2021-collage-2.jpg)
 
