@@ -1,7 +1,7 @@
 ---
 date: 2021-11-09
 layout: post
-title: "Blog tour: Wish You Weren't Here by Gaby Hutchinson Crouch"
+title: "Blog tour: Wish You Weren't Here by Gabby Hutchinson Crouch"
 excerpt: "<cite>Wish You Weren't Here</cite> is a funny, imaginative and action-packed opener to an exciting new trilogy."
 featured-image: /images/wish-you-werent-here.jpg
 ---
@@ -24,7 +24,7 @@ Midlands since the 90s."
 
 <img src="/images/wish-you-werent-here-200.jpg" alt="Wish You Weren't Here" style="float: right; margin-bottom: 10px; margin-left: 10px;">
 
-<cite>Wish You Weren't Here</cite>, by Gaby Hutchinson Crouch, introduces us to the Rook family, who each play their own parts in the family business of ghost-hunting. Mum Linda and son Darryl can see ghosts. Daughter Charity can't see them, but can 'pop' them into the next world. Darryl's husband Janusz does the accounts. And dad Richard? Well, it's not every mild-mannered middle-aged man who co-inhabits his body with a demon called Murzzzz...
+<cite>Wish You Weren't Here</cite>, by Gabby Hutchinson Crouch, introduces us to the Rook family, who each play their own parts in the family business of ghost-hunting. Mum Linda and son Darryl can see ghosts. Daughter Charity can't see them, but can 'pop' them into the next world. Darryl's husband Janusz does the accounts. And dad Richard? Well, it's not every mild-mannered middle-aged man who co-inhabits his body with a demon called Murzzzz...
 
 We meet the Rooks on their way to deal with a church haunting on Coldbay Island. What they thought would be a straightforward exorcism turns out to be a battle for the future of the planet. The earnest but despairing Reverend Grace Barry seems to be the only one on the island who isn't a ghost or a demon, and there's a rather ominous hole in the sky above the pier.
 
