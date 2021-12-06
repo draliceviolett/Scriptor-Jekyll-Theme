@@ -9,7 +9,7 @@ featured-image: /images/november-2021-collage-1.jpg
 
 After several months of reading fewer and fewer books, this month I read ten, which is more like me. All hail a successful pharmaceutical intervention after a year of less successful ones... let's hope it lasts.
 
-27 November was the launch of the [Colchester WriteNight Anthology](https://www.amazon.co.uk/Colchester-WriteNight-Short-Prose-Collection-ebook/dp/B09KZR3QRZ/ref=sr_1_1?keywords=colchester+writenight&qid=1638747383&sr=8-1)! If you're looking for Christmas present inspiration, it's a cracking collection of short stories by fab writers as well as myself. And now I can say I'm a published author!
+27 November was the launch of the [Colchester WriteNight Anthology](https://www.amazon.co.uk/Colchester-WriteNight-Short-Prose-Collection-ebook/dp/B09KZR3QRZ/ref=sr_1_1?keywords=colchester+writenight&qid=1638747383&sr=8-1)! If you're looking for Christmas present inspiration, it's a cracking collection of short stories by fab writers as well as myself. And now I can say I'm a published author.
 
 And now, on with the round-up...
 
