@@ -25,7 +25,7 @@ I seem to be reading one book less each month. At this rate, in April 2022 I'll 
 
 <cite>Ellie and the Harpmaker</cite>, by Hazel Prior - 3.5*
 
-<cite>Wish You Weren't Here</cite>, by Gaby Hutchinson Crouch - review coming soon! 4.5*
+[<cite>Wish You Weren't Here</cite>, by Gabby Hutchinson Crouch](/blog-tour-wish-you-werent-here/) - 4.5*
 
 ## Looking ahead...
 
