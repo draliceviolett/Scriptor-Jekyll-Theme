@@ -40,7 +40,7 @@ Having overheard something about herself, she worries about news stories concern
 
 I particularly enjoyed reading Zurel's chapters, which explore the various thoughts and feelings that someone might have as they learn they've been modified. A couple that particularly stuck with me were her speculations that she might have been happier as the unmodified version of herself, but also that she might not have been treated in the same way by Susan and Steve if she hadn't been edited. Her story also raised the question of who would be considered her father.
 
-While I had some sympathy for Susan, ultimately I felt a lot more for Zurel, and a lot of affection for her too. This made the pro-lifers even scarier, as I didn't want any harm to come to this character I knew and liked. This novel is wide-ranging, taking in a variety of implications of, and viewpoints on, genetic engineering at a time when it actually happens.
+While I had some sympathy for Susan, ultimately I felt a lot more for Zurel, and a lot of affection for her too. This made the pro-lifers even scarier, as I didn't want any harm to come to this character I knew and liked. This novel is wide-ranging and thorough, taking in a variety of implications of, and viewpoints on, genetic engineering at a time when it actually happens.
 
 <cite>Off Target</cite> is a tense and heart-wrenching exploration of the possible consequences of genetic engineering.
 
