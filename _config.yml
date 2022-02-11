@@ -29,7 +29,7 @@ navigation:
     url: /
   - text: About my PhD
     url: /phd-blog/
-  - text: About Me
+  - text: About me
     url: /about/
 
 # The shortname for your Disqus site to enable comments.
