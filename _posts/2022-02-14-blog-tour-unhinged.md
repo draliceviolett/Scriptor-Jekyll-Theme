@@ -29,4 +29,4 @@ This mixture of action and investigation means <cite>Unhinged</cite> will appeal
 
 <cite>Unhinged</cite> is by turns thrilling, interesting, and emotive.
 
-![Unhinged blog tour banner](/images/unhinged.jpg)
+![Unhinged blog tour banner](/images/unhinged-banner.jpg)
