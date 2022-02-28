@@ -32,7 +32,7 @@ This is a fast-paced read featuring brutal, breath-taking twists throughout that
 
 The character of John is both terrifying and fascinating. I felt so much for Ingrid as I learned what he'd done to make her life hell a few years previously, and his behaviour made me think about obsession. What does John want from Ingrid, if he's not interested in sex and doesn't want to kill her? Is he genuinely trying to help, and what actions does he consider as 'helping', anyway? Who's bluffing and manipulating who? You can see how John takes people in, as he can come across as sincere and charming, and even though I knew he was a wrong 'un, at times I found myself questioning that knowledge.
 
-Something else I appreciated was the insight into Ingrid's profession, having enjoyed non-fiction books as [<cite>In Black and White</cite>](/blog-tour-in-black-and-white/), by Alexandra Wilson, and <cite>The Secret Barrister: Stories of the law and how it's broken</cite>. As well as portraying what's expected of a barrister, Casey explores the limitations and shortcomings of the justice system in England and Wales, and how these can have devastating effects on people's lives.
+Something else I appreciated was the insight into Ingrid's profession, having enjoyed non-fiction books as [<cite>In Black and White</cite>, by Alexandra Wilson](/blog-tour-in-black-and-white/), and <cite>The Secret Barrister: Stories of the law and how it's broken</cite>. As well as portraying what's expected of a barrister, Casey explores the limitations and shortcomings of the justice system in England and Wales, and how these can have devastating effects on people's lives.
 
 <cite>The Killing Kind</cite> is an addictive, fascinating thriller that keeps you guessing all the way through.
 
