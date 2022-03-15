@@ -1,5 +1,5 @@
 ---
-date: 2022-03-15
+date: 2022-03-18
 layout: post
 title: "Blog tour: The Flames by Sophie Haydock"
 excerpt: "<cite>The Flames</cite> is rich, captivating, and ultimately heartbreaking."
