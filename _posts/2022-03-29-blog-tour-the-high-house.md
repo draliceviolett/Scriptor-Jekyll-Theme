@@ -28,7 +28,7 @@ The author's focus on just four characters allows her to explore the idea that w
 
 Little Pauly pays particular attention to the plight of birds, Caro gets caught up in her misperception of Francesca's motives in setting up the high house, Sally has to deal with her frustration with Caro, and Grandy considers the effects of climate change he'd already seen in his lifetime, and whether the writing was already on the wall. They do come to an accord, some more easily than others, and it's particularly touching to see how Grandy and Sally interact with Pauly.
 
-The small cast also gives the novel an eerie, claustrophobic thrill. Even before they moved to the high house, the two pairs were isolated in their own ways. Grandy and Sally were the only inhabitants of their coastal village apart from in the summer months, when the second home owners descended; they only saw grocery delivery drivers and the peripatetic vicar with any regularity.
+The small cast also gives the novel an eerie, claustrophobic feel. Even before they moved to the high house, the two pairs were isolated in their own ways. Grandy and Sally were the only inhabitants of their coastal village apart from in the summer months, when the second home owners descended; they only saw grocery delivery drivers and the peripatetic vicar with any regularity.
 
 Meanwhile, Caro practically raised Pauly herself, as Francesca and their father were constantly away from home, trying to avert the coming disaster. The fact that it happens despite Francesca's efforts, and, even with her global perspective, she goes the extra mile to ensure her nearest and dearest have a better chance of survival, contributes to the theme of tension between the smaller and bigger pictures.
 
