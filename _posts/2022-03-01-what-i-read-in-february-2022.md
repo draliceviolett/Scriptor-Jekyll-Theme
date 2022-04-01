@@ -23,7 +23,7 @@ I read so many good books over this past month! March has a lot to live up to, a
 
 <cite>Changeling</cite>, by Matt Wesolowski - have I mentioned recently how much I'm loving this series? 5*
 
-[<cite>Deep Down There</cite>, by Oli Jacobs](/blog-tour-deep-down-there/) - 4*
+[<cite>Deep Down There</cite>, by Oli Jacobs](/deep-down-there-by-oli-jacobs/) - 4*
 
 <cite>The Killing Kind</cite>, by Jane Casey - review coming soon! 4.5*
 
