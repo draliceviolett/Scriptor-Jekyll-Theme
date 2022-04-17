@@ -2,7 +2,7 @@
 date: 2022-02-22
 layout: post
 title: "Review: Deep Down There by Oli Jacobs"
-excerpt: "<cite>Deep Down There</cite> is intriguing, sinister and enjoyable."
+excerpt: "<cite>Deep Down There</cite> is intriguing, sinister, and enjoyable."
 ---
 
 **I received a free copy of this book from the author in return for an honest review.**
@@ -27,4 +27,4 @@ Some of Hannah's neighbours take up the offer and leave for the hotel. Hannah se
 
 But even when they aren't actually inside it, the hole has thrillingly scary effects on those who live nearby, whether it's violently ejecting the concrete that estate caretaker Vincent Crendon and his friend Ronnie attempt to fill it in with, or giving people horrible, personalised vivid dreams. And throughout, you're wondering: why has this hole appeared, and here, of all places? What exactly is down there? And why are HP Properties not doing more to solve the problem? You'll have to read the book to find out.
 
-<cite>Deep Down There</cite> is intriguing, sinister and enjoyable.
+<cite>Deep Down There</cite> is intriguing, sinister, and enjoyable.

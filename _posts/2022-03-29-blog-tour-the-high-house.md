@@ -2,7 +2,7 @@
 date: 2022-03-29
 layout: post
 title: "Blog tour: The High House by Jessie Greengrass"
-excerpt: "<cite>The High House</cite> is eerie, thought-provoking and beautifully written."
+excerpt: "<cite>The High House</cite> is eerie, thought-provoking, and beautifully written."
 featured-image: /images/the-high-house.jpg
 ---
 
@@ -36,6 +36,6 @@ It really made me think. Might Francesca just as well have spent her final years
 
 The author's use of language is beautiful, though it feels a bit wrong to think of a ruined world in those terms! She skilfully brings home what we stand to lose, and how things we take for granted now could become totally alien by the next generation. She also shows that even when the worst has happened and the characters face an uncertain future, they can still find some beauty and joy that made it worth surviving.
 
-<cite>The High House</cite> is eerie, thought-provoking and beautifully written.
+<cite>The High House</cite> is eerie, thought-provoking, and beautifully written.
 
 ![The High House blog tour banner](/images/the-high-house-banner.jpg)

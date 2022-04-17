@@ -2,7 +2,7 @@
 date: 2022-04-07
 layout: post
 title: "Blog tour: The Shot by Sarah Sultoon"
-excerpt: "<cite>The Shot</cite> is intense, powerful and thought-provoking."
+excerpt: "<cite>The Shot</cite> is intense, powerful, and thought-provoking."
 featured-image: /images/the-shot.jpg
 ---
 
@@ -36,6 +36,6 @@ This raises the question of whether, at least in terms of feelings, Sami and Kri
 
 It also got me thinking about different motivations for becoming a war correspondent. Sami wants to make the world a better place, as well as follow in her dead father's footsteps, and Kris may have started off in a similarly idealistic position. However, many of their colleagues are more concerned with status, viewing figures, office politics, and power games, increasing Kris' sense of alienation.
 
-<cite>The Shot</cite> is intense, powerful and thought-provoking.
+<cite>The Shot</cite> is intense, powerful, and thought-provoking.
 
 ![The Shot blog tour banner](/images/the-shot-banner.jpg)

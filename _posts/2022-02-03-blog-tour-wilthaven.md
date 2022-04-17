@@ -2,7 +2,7 @@
 date: 2022-02-03
 layout: post
 title: "Blog tour: Wilthaven, by Oli Jacobs"
-excerpt: "<cite>Wilthaven</cite> is creative, entertaining and delightfully unsettling."
+excerpt: "<cite>Wilthaven</cite> is creative, entertaining, and delightfully unsettling."
 featured-image: /images/wilthaven.jpg
 ---
 
@@ -32,6 +32,6 @@ Something else I appreciated about <cite>Wilthaven</cite> was its thrilling cree
 
 What's more, <cite>Wilthaven</cite> is very funny. I laughed throughout, but especially at the Wilthaven Walks guide and the extensive list of possible side effects of reading a trans-dimensional book, <cite>The Children of Little Thwopping</cite> (actually another book of Jacobs', which I'm planning to read despite the risk of non-existence, spontaneous arachnid propulsion and runny nose!).
 
-<cite>Wilthaven</cite> is creative, entertaining and delightfully unsettling.
+<cite>Wilthaven</cite> is creative, entertaining, and delightfully unsettling.
 
 ![Wilthaven blog tour banner](/images/wilthaven-banner.jpg)
