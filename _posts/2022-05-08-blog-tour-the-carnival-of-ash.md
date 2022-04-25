@@ -1,5 +1,5 @@
 ---
-date: 2022-05-08
+date: 2022-04-25
 layout: post
 title: "Blog tour: The Carnival of Ash, by Tom Beckerlegge"
 excerpt: "<cite>The Carnival of Ash</cite> is an entertaining and detailed epic about the final days of an imaginary city."
@@ -30,7 +30,7 @@ As other reviewers have pointed out, though, <cite>The Carnival of Ash</cite> ov
 
 Men get to be poets and rulers, while women's choices are a lot more limited, though we do nonetheless see women exercising agency within these confines, and occasionally getting one over on men. I'd have liked to have seen more women working together, as well as ordinary, middle-aged women who were neither privileged nor social outcasts. There's also a distinct lack of children running around in the book, now I think about it. Maybe there's a message there about why the city ultimately falls apart!
 
-The descriptions can be quite male gaze-y at times, with some women being described with reference to how attractive they are (though I've definitely come across worse offenders in this regard). In addition, I think this book could benefit from having a list of characters to refer to, as once I was a few cantos in, I'd met so many men that I sometimes had to flick back to remind myself who was who!
+The descriptions can be quite male gaze-y at times, with some women being described with reference to how attractive and in need of protection they are (though I've definitely come across worse offenders in this regard). In addition, I think this book could benefit from having a list of characters to refer to, as once I was a few cantos in, I'd met so many men that I sometimes had to flick back to remind myself who was who!
 
 <cite>The Carnival of Ash</cite> is an entertaining and detailed epic about the final days of an imaginary city.
 
