@@ -37,7 +37,7 @@ This month I did a Q&A about book blogging for my friends at Colchester WriteNig
 
 <cite>Torch, by Lin Anderson</cite> - 3*
 
-<cite>Soulcat</cite>, by Amy Vaughan-Spencer - review coming soon! 4*
+[<cite>Soulcat</cite>, by Amy Vaughan-Spencer](/blog-tour-soulcat) - 4*
 
 <cite>The Space Adventures of Kirk Sandblaster: Space Adventurer</cite> - strong Zapp Brannigan and Kif Kroker vibes. 4*
 
