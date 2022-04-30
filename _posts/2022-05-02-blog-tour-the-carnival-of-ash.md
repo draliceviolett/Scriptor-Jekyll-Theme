@@ -1,5 +1,5 @@
 ---
-date: 2022-04-25
+date: 2022-05-02
 layout: post
 title: "Blog tour: The Carnival of Ash, by Tom Beckerlegge"
 excerpt: "<cite>The Carnival of Ash</cite> is an entertaining and detailed epic about the final days of an imaginary city."
