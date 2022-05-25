@@ -27,11 +27,11 @@ So I'm very excited for the next few months. It's such a turnaround from this ti
 
 [<cite>The Rabbit Factor</cite>, by Antti Tuomainen, translated by David Hackston](/blog-tour-the-rabbit-factor/) - 5*
 
-<cite>Villager</cite>, by Tom Cox - I was actually an Unbound pledger for this, but since reading the book I've had the opportunity to jump on a blog tour! Might read it again because I enjoyed it so much, and want to pick up on connections I missed the first time around... 5*
+[<cite>Villager</cite>, by Tom Cox](/blog-tour-villager/) - I was actually an Unbound pledger for this, but since reading the book I've had the opportunity to jump on a blog tour! 5*
 
-<cite>The Carnival of Ash</cite>, by Tom Beckerlegge - review coming soon! It may also have been quietly up for a few days this week, because I forgot to change the date on it before pushing to live... 4*
+[<cite>The Carnival of Ash</cite>, by Tom Beckerlegge](/blog-tour-the-carnival-of-ash/) - 4*
 
-<cite>Keep Her Sweet</cite>, by Helen FitzGerald - review coming soon! 4*
+[<cite>Keep Her Sweet</cite>, by Helen FitzGerald](/blog-tour-keep-her-sweet/) - 4*
 
 ![Overkill, A Field Guide to Getting Lost, Mr Loverman](/images/april-2022-collage-3.jpg)
 
