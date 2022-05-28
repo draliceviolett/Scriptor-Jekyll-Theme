@@ -10,7 +10,7 @@ featured-image: /images/the-mayfair-bookshop.jpg
 
 **This post is part of a blog tour organised by [Random Things Blog Tours](http://randomthingsthroughmyletterbox.blogspot.com/p/services-to-publishers-authors-blog.html). I received a free copy of the book in return for an honest review.**
 
-> " 1938: She was one of the six sparkling Mitford sisters, known for her stinging quips, stylish dress, and bright green eyes. But Nancy Mitford’s seemingly dazzling life was really one of turmoil: with a perpetually unfaithful and broke husband, two Nazi sympathizer sisters, and her hopes of motherhood dashed forever.
+> "1938: She was one of the six sparkling Mitford sisters, known for her stinging quips, stylish dress, and bright green eyes. But Nancy Mitford’s seemingly dazzling life was really one of turmoil: with a perpetually unfaithful and broke husband, two Nazi sympathizer sisters, and her hopes of motherhood dashed forever.
 
 > "With war imminent, Nancy finds respite by taking a job at the Heywood Hill Bookshop in Mayfair, hoping to make ends meet, and discovers a new life.
 
