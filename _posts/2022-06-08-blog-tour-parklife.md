@@ -34,10 +34,8 @@ Emma's endearing, funny voice is still there too, but what makes this story so h
 
 In Emma's increasing 'absence', other characters step up to the plate and remind you that there is some good in the world. While Emma's behaviour can be frustrating, hurtful, and frightening, Dor, her dad Tel, and best friend Dave know it's not who she really is. They refuse to give up on her, while being aware that there's only so much they can do until she's willing to help herself.
 
-I enjoyed seeing more of Dor, an entertaining character who puts me in mind of Big Mo from EastEnders. Emma also strikes up a lovely friendship with Les, a recovering older alcoholic who frequents the park and is a continual source of wisdom.
+I enjoyed seeing more of Dor, an entertaining character who puts me in mind of Big Mo from EastEnders. Emma also strikes up a lovely friendship with Les, a recovering older alcoholic who frequents the park and is a continual source of wisdom. It's such a positive, true message that there are always people will hold a space for you, not judge, and see your humanity, however bad things get.
 
-While I've never suffered from addiction, like Emma I've had times where I've felt that everyone was doing well in life except me, woken up dreading the day ahead, and hidden the extent of my problems to avoid upsetting or inconveniencing people. I've had times where I've felt like the funny, enthusiastic person I am in good times is gone forever.
-
-Also like Emma, I've previously lost sight of the fact that the people who really care about you won't desert, judge, or hate you forever the minute you mess up, let them down, or show any signs of imperfection, and have felt buoyed up by spending time with people who are open about being messy and flawed themselves. This is therefore a very relatable book with a positive message at its heart.
+This is also a very relatable book. You don't have to have suffered from addiction yourself to sympathise with Emma when she wakes up dreading the day ahead, or feels like everyone else has things going for them while there's nothing left for her.
 
 <cite>Parklife</cite> is a heart-breaking and heart-warming story of addiction, friendship, and being good to one another as fellow humans.
