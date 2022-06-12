@@ -14,7 +14,7 @@ featured-image: /images/do-no-harm.jpg
 
 > "When heart surgeon Dr Anna Jones returns home to find her son kidnapped, she is forced to make an impossible choice. Kill a high-profile patient on the operating table, or never see her son again.
 
-> "Told from the perspectives of Anna, her scrub nurse, Margot, who has her own secrets to protect, and DI Rachel Conaty, Anna must first make the impossible decision...
+> "Told from the perspectives of Anna, her scrub nurse, Margot, who has her own secrets to protect, and DI Rachel Conaty, Anna must first make the impossible decision..."
 
 <img src="/images/do-no-harm-200.jpg" alt="Do No Harm" style="float: right; margin-bottom: 10px; margin-left: 10px;">
 
