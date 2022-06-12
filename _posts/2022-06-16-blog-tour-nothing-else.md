@@ -1,5 +1,5 @@
 ---
-date: 2022-06-12
+date: 2022-06-16
 layout: post
 title: "Blog tour: Nothing Else by Louise Beech"
 excerpt: "<cite>Nothing Else</cite> is a beautiful and moving story about the power of music and memory."
