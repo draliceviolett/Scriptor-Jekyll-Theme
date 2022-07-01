@@ -31,7 +31,7 @@ I've also been busy with all sorts, which has been nice, but not so conducive to
 
 [<cite>Twenty-Eight Pounds Ten Shillings</cite>, by Tony Fairweather](/blog-tour-twenty-eight-pounds-ten-shillings/) - 4*
 
-<cite>Do No Harm</cite>, by Jack Jordan - review coming soon! 4.5*
+[<cite>Do No Harm</cite>, by Jack Jordan](/blog-tour-do-no-harm/) - 4.5*
 
 ## Looking ahead...
 
