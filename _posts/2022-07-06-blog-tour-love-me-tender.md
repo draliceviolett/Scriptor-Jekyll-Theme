@@ -26,7 +26,7 @@ featured-image: /images/love-me-tender.jpg
 
 > "With the odds stacked against him, and time running out, can DCI Sterling uncover the truth before it’s too late? Or will this case finally tip him over the edge?"
 
-<img src="/images/tasting-sunlight-200.jpg" alt="Love Me Tender" style="float: right; margin-bottom: 10px; margin-left: 10px;">
+<img src="/images/love-me-tender-200.jpg" alt="Love Me Tender" style="float: right; margin-bottom: 10px; margin-left: 10px;">
 
 In <cite>Love Me Tender</cite>, by Lorraine Mace, DCI Paolo Sterling and his team are under enormous pressure to solve two cases.
 
