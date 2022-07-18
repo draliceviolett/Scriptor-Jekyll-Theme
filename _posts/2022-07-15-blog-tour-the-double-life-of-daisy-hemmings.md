@@ -1,7 +1,7 @@
 ---
 date: 2022-07-15
 layout: post
-title: "Blog tour: The Double Life of Daisy Hemmings by Jo Nadin"
+title: "Blog tour: The Double Life of Daisy Hemmings by Joanna Nadin"
 excerpt: "<cite>The Double Life of Daisy Hemmings</cite> is a vivid and fascinating read that made me think about identity, class, and literary tradition."
 featured-image: /images/the-double-life-of-daisy-hemmings.jpg
 ---
@@ -24,7 +24,7 @@ featured-image: /images/the-double-life-of-daisy-hemmings.jpg
 
 <img src="/images/the-double-life-of-daisy-hemmings-200.jpg" alt="The Double Life of Daisy Hemmings" style="float: right; margin-bottom: 10px; margin-left: 10px;">
 
-In <cite>The Double Life of Daisy Hemmings</cite>, by Jo Nadin, we follow the same person - or, at least, entity - in 1988 and 2018.
+In <cite>The Double Life of Daisy Hemmings</cite>, by Joanna Nadin, we follow the same person - or, at least, entity - in 1988 and 2018.
 
 In 1988, he's Jason Pengelly, a 17-year-old working-class boy stymied by his bullying father and the lack of opportunities in Cornwall, when he falls in with a group of braying visitors, including beguiling Daisy Hicks and her quieter twin, Bea.
 
