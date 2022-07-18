@@ -40,7 +40,7 @@ The First World War was a particularly big divider, as the women differed so muc
 
 In the introduction, Scutts writes:
 
-> "Friendship is an elusive subject for history, because we tend to take it for granted, to view it as something organic, unspoken, a connection that doesn't require work or analysis... Biographers often treat friendship as subordinate to romantic or filial relationships, and less important than the influence of mentors and teachers in shaping a person's life. But our friends have a profound influence on our work and our beliefs, on the way we live every day. For the women in this book, friendship was a bolstering, emboldening force."
+> 'Friendship is an elusive subject for history, because we tend to take it for granted, to view it as something organic, unspoken, a connection that doesn't require work or analysis... Biographers often treat friendship as subordinate to romantic or filial relationships, and less important than the influence of mentors and teachers in shaping a person's life. But our friends have a profound influence on our work and our beliefs, on the way we live every day. For the women in this book, friendship was a bolstering, emboldening force.'
 
 This is a message she reinforces throughout the book, by emphasising the living arrangements, collaboration, and assistance between the women of Heterodoxy.
 
