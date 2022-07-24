@@ -33,7 +33,7 @@ This month I'm really looking forward to [Primadonna Festival](https://primadonn
 
 [<cite>Tasting Sunlight</cite>, by Ewald Arenz, translated by Rachel Ward](/blog-tour-tasting-sunlight/) - 4.5*
 
-<cite>Love Me Tender</cite>, by Lorraine Mace - review coming soon! 4*
+[<cite>Love Me Tender</cite>, by Lorraine Mace](/blog-tour-love-me-tender/) - 4*
 
 ## Looking ahead...
 
