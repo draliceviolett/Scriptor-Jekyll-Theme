@@ -1,7 +1,7 @@
 ---
 date: 2022-08-02
 layout: post
-title: "Blog tour: The Girl in the Photo, by Heidi Amsinck"
+title: "Blog tour: The Girl in the Photo by Heidi Amsinck"
 excerpt: "<cite>The Girl in the Photo</cite> is intriguing, haunting, and vivid."
 featured-image: /images/the-girl-in-the-photo.jpg
 ---

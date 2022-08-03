@@ -39,13 +39,13 @@ And now, onto July's reading...
 
 [<cite>Hotbed</cite>, by Joanna Scutts](/blog-tour-hotbed/) - 4*
 
-<cite>Whisper of the Seals</cite>, by Roxanne Bouchard, translated by David Warriner - review coming soon (spoiler: this book emotionally destroyed me)! 4.5*
+[<cite>Whisper of the Seals</cite>, by Roxanne Bouchard, translated by David Warriner](/blog-tour-whisper-of-the-seals/) - 4.5*
 
 ![A Normal Family, The Girl in the Photo, The Party House](/images/july-2022-collage-3.jpg)
 
 [<cite>A Normal Family</cite>, by Chrysta Bilton](/blog-tour-a-normal-family/) - 5*
 
-<cite>The Girl in the Photo</cite>, by Heidi Amsinck - review coming soon! 4.5*
+[<cite>The Girl in the Photo</cite>, by Heidi Amsinck](/blog-tour-the-girl-in-the-photo/) - 4.5*
 
 <cite>The Party House</cite>, by Lin Anderson - review coming soon! 3.5*
 

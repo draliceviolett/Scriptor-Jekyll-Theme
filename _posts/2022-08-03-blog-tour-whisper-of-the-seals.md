@@ -1,7 +1,7 @@
 ---
 date: 2022-08-03
 layout: post
-title: "Blog tour: Whisper of the Seals, by Roxanne Bouchard, translated by David Warriner"
+title: "Blog tour: Whisper of the Seals by Roxanne Bouchard, translated by David Warriner"
 excerpt: "<cite>Whisper of the Seals</cite> is a stark and brutal thriller that drips with menace and tension."
 featured-image: /images/whisper-of-the-seals.jpg
 ---
