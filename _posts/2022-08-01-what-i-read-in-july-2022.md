@@ -47,7 +47,7 @@ And now, onto July's reading...
 
 [<cite>The Girl in the Photo</cite>, by Heidi Amsinck](/blog-tour-the-girl-in-the-photo/) - 4.5*
 
-<cite>The Party House</cite>, by Lin Anderson - review coming soon! 3.5*
+[<cite>The Party House</cite>, by Lin Anderson](/blog-tour-the-party-house/) - 3.5*
 
 ## Looking ahead...
 
