@@ -37,6 +37,8 @@ layout: default
 
       <a rel="prev" class="db w-half-ns mv3" href="{{ page.previous.url }}"><span aria-label="Previous:">&larr;</span> {{ page.previous.title }}</a>
 
+      |
+
       <a rel="next" class="db w-half-ns tr-ns mv3" href="{{ page.next.url }}">{{ page.next.title }} <span aria-label="Next:">&rarr;</span></a>
 
     {% else %}
@@ -54,6 +56,7 @@ layout: default
   </div>
 
 {% endif %}
+
     <div class="author-box">
       {% if site.data.author.image and site.data.author.image != "" %}
       <div class="author-avatar" style="background-image: url('{{ site.data.author.image }}')"><span class="screen-reader-text">{{ site.data.author.name }}'s Picture</span></div>
