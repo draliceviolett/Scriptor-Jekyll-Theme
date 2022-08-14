@@ -24,7 +24,7 @@ layout: default
     <div class="post-content">
       {% if post.excerpt %}
       {{ post.excerpt }}
-      <p class="read-more"><a href="{{ site.baseurl }}{{ post.url }}" class="read-more-link">Continue reading &rarr;</a>
+      <p class="read-more"><a href="{{ site.baseurl }}{{ post.url }}" class="read-more-link">{{post.title}} &rarr;</a>
       </p>
       {% else %}
       {{ post.content }}

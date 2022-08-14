@@ -35,21 +35,21 @@ layout: default
 
     {% if page.next.url %}
 
-      <a rel="prev" class="db w-half-ns mv3" href="{{ page.previous.url }}"><span aria-label="Previous:">&larr;</span> {{ page.previous.title }}</a>
+      <a rel="prev" class="db w-half-ns mv3" href="{{ page.previous.url }}"><span aria-label="Previous:">&larr;</span> {{ page.previous.title | remove: "Blog tour: " }}</a>
 
       |
 
-      <a rel="next" class="db w-half-ns tr-ns mv3" href="{{ page.next.url }}">{{ page.next.title }} <span aria-label="Next:">&rarr;</span></a>
+      <a rel="next" class="db w-half-ns tr-ns mv3" href="{{ page.next.url }}">{{ page.next.title | remove: "Blog tour: " }} <span aria-label="Next:">&rarr;</span></a>
 
     {% else %}
 
-      <a class="db mv3" rel="prev" href="{{ page.previous.url }}"><span aria-label="Previous:">&larr;</span> {{ page.previous.title }}</a>
+      <a class="db mv3" rel="prev" href="{{ page.previous.url }}"><span aria-label="Previous:">&larr;</span> {{ page.previous.title | remove: "Blog tour: " }}</a>
 
     {% endif %}
 
   {% else %}
 
-    <a rel="next" class="db tr-ns mv3" href="{{ page.next.url }}">{{ page.next.title }} <span aria-label="Next:">&rarr;</span></a>
+    <a rel="next" class="db tr-ns mv3" href="{{ page.next.url }}">{{ page.next.title | remove: "Blog tour: " }} <span aria-label="Next:">&rarr;</span></a>
 
   {% endif %}
 
