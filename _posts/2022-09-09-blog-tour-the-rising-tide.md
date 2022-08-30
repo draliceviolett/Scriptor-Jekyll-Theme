@@ -18,7 +18,7 @@ featured-image: /images/the-rising-tide.jpg
 
 <img src="/images/the-rising-tide-200.jpg" alt="The Rising Tide" style="float: right; margin-bottom: 10px; margin-left: 10px;">
 
-Vera Stanhope is, without a doubt, my favourite fictional detective. I just love her curious (okay, nosy) nature, how observant and perceptive she is, and how she comfortably refuses to adhere to societal norms, while recognising the different things that make her colleagues and victims/interviewees/suspects tick and acting accordingly. I'm always excited to read a new book by Ann Cleeves, but if it's a Vera one, I'm especially keen to get stuck into it.
+Vera Stanhope is, without a doubt, my favourite fictional detective. I just love her curious (okay, nosy) nature, how observant and astute she is, and how she casually disregards society's expectations of her as a middle-aged woman and takes advantage of people's underestimation of her. I'm always excited to read a new book by Ann Cleeves, but if it's a Vera one, I'm especially keen to get stuck into it.
 
 Her latest, tenth outing, <cite>The Rising Tide</cite>, is an excellent read that I sped through. Five old schoolmates - Rick, Philip, Annie, Louisa, and Ken - are staying at the Pilgrims' House, a former convent on Holy Island/Lindisfarne. They do this every five years to mark the anniversary of a sixth-form school trip there, on which they became lifelong friends.
 
