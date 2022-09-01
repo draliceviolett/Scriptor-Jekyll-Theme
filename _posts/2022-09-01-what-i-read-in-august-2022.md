@@ -43,7 +43,7 @@ Plus, I only seem able to complete writing projects when I've been specifically 
 
 <cite>My Name is Leon</cite>, by Kit de Waal - 4.5*
 
-<cite>The Bleeding</cite>, by Jo Gustawsson, translated by David Warriner - review coming soon! 4.5*
+<cite>The Bleeding</cite>, by Johana Gustawsson, translated by David Warriner - review coming soon! 4.5*
 
 ## Looking ahead...
 
