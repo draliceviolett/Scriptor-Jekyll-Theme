@@ -39,11 +39,11 @@ Plus, I only seem able to complete writing projects when I've been specifically 
 
 <cite>The Last to Disappear</cite>, by Jo Spain - my pick for August's [Book Shelf Raiders](https://www.instagram.com/bookshelfraiders/), though I couldn't make it to the Zoom in the end. 4*
 
-<cite>The Rising Tide</cite>, by Ann Cleeves - review coming soon! 5*
+[<cite>The Rising Tide</cite>, by Ann Cleeves](/blog-tour-the-rising-tide) - 5*
 
 <cite>My Name is Leon</cite>, by Kit de Waal - 4.5*
 
-<cite>The Bleeding</cite>, by Johana Gustawsson, translated by David Warriner - review coming soon! 4.5*
+[<cite>The Bleeding</cite>, by Johana Gustawsson, translated by David Warriner](/blog-tour-the-bleeding/) - 4.5*
 
 ## Looking ahead...
 
