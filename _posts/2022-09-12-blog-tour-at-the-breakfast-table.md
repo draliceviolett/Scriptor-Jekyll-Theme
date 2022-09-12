@@ -36,4 +36,4 @@ The author's detailed descriptions of Buyukada and the surrounding sea, ably tra
 
 <cite>At the Breakfast Table</cite> is an unhurried, multi-layered, and fascinating treat for the senses.
 
-![At the Breakfast Table blog tour banner](/images/at-the-breakfast-table.jpg)
+![At the Breakfast Table blog tour banner](/images/at-the-breakfast-table-banner.jpg)
