@@ -7,7 +7,7 @@ excerpt: "In my head, and out loud."
 featured-image: /images/september-2022-collage-1.jpg
 ---
 
-I haven't just been reading silently this past month - I also performed a short story at Emotional Madness with Mary-Ann and Mates at Colchester Arts Centre, which went down well enough for me to be invited to submit a piece for the podcast of one of my fellow performers! So I ended up writing and recording a little something extra, which should be online for all to hear in the not-too-far future.
+I haven't just been reading silently this past month - I also performed a short story, "Transformation", at Emotional Madness with Mary-Ann and Mates at Colchester Arts Centre, which went down well enough for me to be invited to submit a piece for the podcast of one of my fellow performers! So I ended up writing and recording a little something extra, which should be online for all to hear in the not-too-far future.
 
 ![Eleven people standing on a wooden floor with a microphone, under stage lighting](/images/emotional-madness-september-2022.jpg)
 *Me with most of my fellow performers*
