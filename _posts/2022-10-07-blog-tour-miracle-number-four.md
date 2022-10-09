@@ -14,8 +14,7 @@ featured-image: /images/miracle-number-four.jpg
 
 > 'Music brings excitement and a chance to shine, but life off-stage is complicated. Together with family, friends and band-mates, Mike finds joy, sadness and loss. Troubling secrets surface while a new friend brings both fresh perspectives and a cruel reality.
 
-> 'The radios and pubs blast rock into the suburban nights and the band prepare for their big break. Is Mike
-ready?'
+> 'The radios and pubs blast rock into the suburban nights and the band prepare for their big break. Is Mike ready?'
 
 <img src="/images/miracle-number-four-200.jpg" alt="Miracle Number Four" style="float: right; margin-bottom: 10px; margin-left: 10px;">
 

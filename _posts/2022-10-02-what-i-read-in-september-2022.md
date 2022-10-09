@@ -34,7 +34,7 @@ Here's what I read in my head in September...
 
 [<cite>The Witches of Moonshyne Manor</cite>, by Bianca Marais](/blog-tour-the-witches-of-moonshyne-manor/) - 4*
 
-<cite>The Moose Paradox</cite>, by Antti Tuomainen, translated by David Hackston - review coming soon! 3.5*
+[<cite>The Moose Paradox</cite>, by Antti Tuomainen, translated by David Hackston](/blog-tour-the-moose-paradox/) - 3.5*
 
 <cite>Thirteen</cite>, by Steve Cavanagh - read for September's [Book Shelf Raiders](https://www.instagram.com/bookshelfraiders/), but couldn't make it to the meeting! 4.5*
 
