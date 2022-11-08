@@ -28,7 +28,7 @@ When his best friend, Mike, dies by suicide, Eli is devastated, but also strange
 
 As you might expect from Carver by now, this is a novel that throws convention out of the window. <cite>Suicide Thursday</cite> jumps between perspectives and times in the days leading up to, and following, the eponymous day of Mike's death.
 
-The reader is additionally privy to Eli's conversations with his imaginary therapist, a selection of his abandoned "first chapters", and a stream of text exchanges between Mike and an un-named enabler - is Eli less of a friend than he makes himself out to be?
+The reader is additionally privy to Eli's conversations with his therapist, a selection of his abandoned "first chapters", and a stream of text exchanges between Mike and an un-named enabler - is Eli less of a friend than he makes himself out to be?
 
 <cite>Suicide Thursday</cite> is also notable by its complex characters, which are something else Carver excels at. Eli, Jackie and Mike's less charitable thoughts and actions are put on display, but you nonetheless feel sympathy towards them because you see their better natures too, and give them grace because they experience inner conflict, self-contradiction, and irresolution, and fail in ways we all do sometimes.
 
