@@ -2,7 +2,7 @@
 date: 2022-11-09
 layout: post
 title: "Blog tour: Suicide Thursday by Will Carver"
-excerpt: "<cite>Suicide Thursday</cite> is inventive, unconventional, and highly effective."
+excerpt: "<cite>Suicide Thursday</cite> is unconventional, complex, and highly effective."
 featured-image: /images/suicide-thursday.jpg
 ---
 
@@ -30,20 +30,18 @@ As you might expect from Carver by now, this is a novel that throws convention o
 
 The reader is additionally privy to Eli's conversations with his imaginary therapist, a selection of his abandoned "first chapters", and a stream of text exchanges between Mike and an un-named enabler - is Eli less of a friend than he makes himself out to be?
 
-<cite>Suicide Thursday</cite> is also notable by its complex characters, which are something else Carver excels at. Eli, Jackie and Mike's less charitable thoughts and actions are put on display, but you nonetheless feel sympathy towards them because you see their better natures too, and give them grace because they fail in ways we all do sometimes.
+<cite>Suicide Thursday</cite> is also notable by its complex characters, which are something else Carver excels at. Eli, Jackie and Mike's less charitable thoughts and actions are put on display, but you nonetheless feel sympathy towards them because you see their better natures too, and give them grace because they experience inner conflict, self-contradiction, and irresolution, and fail in ways we all do sometimes.
 
 Eli in particular has a lot to him as he really cares about, and generally acts considerately towards, people he likes, makes sharp observations you can't help but agree with (including a harsh - but refreshingly honest - eulogy at Mike's funeral), and has unresolved grief for his mother.
 
 What's more, his "first chapters" are genuinely good and striking (well, they *are* written by Carver), and I could very much relate to his losing momentum and not getting any further with them. Most of them are complete in themselves anyway (not to mention, my own solution has been to not *aim* to write something long), and I'd read the hell out of an Eli Hagin/Will Carver short story collection!
 
-This novel also gives you pause to think about what it's like to be suicidal, and how people respond to suicidality. As Eli explains, Mike is beyond the point where statements along the lines of 'look at all these things you have to live for', 'things will get better' and 'you'll hurt all these people who love you' land with him, because he's lost the ability to see the good and imagine things getting better, and truly thinks him dying would make things better for everyone.
+This novel also gives you pause to think about what it's like to be suicidal, and how people respond to suicidality. As Eli explains, Mike was beyond the point where statements along the lines of 'look at all these things you have to live for', 'things will get better' and 'you'll hurt all these people who love you' landed with him, because he lost the capacity to see the good and imagine things getting better, and truly thought him dying would make things better for everyone.
 
-When it comes down to it, all statements such as these do is serve to help those left behind reassure themselves that they did the best they could. Mike needs someone to sit with him in his hour of need, and it's just bad fortune that nobody he can usually call on is available at that exact time.
-
-While the messages encouraging Mike to end his life are unethical to say the least, they do affirm and validate, rather than dismiss and deny, his very real feelings, and they are what he wants to hear. If he was always going to do it anyway, I think these messages would have made him feel less alone in his final days than anyone who refused to discuss his thoughts because it made *them* uncomfortable and upset.
+When it comes down to it, all statements like these do is serve to help those left behind reassure themselves that they did the best they could. While the messages encouraging Mike to end his life are unethical to say the least, they do affirm and validate, rather than dismiss and deny, his very real feelings, and they are what he wants to hear. If he was always going to do it anyway, I think these messages would have made him feel less alone in his final days than anyone who refused to discuss his thoughts because it made *them* uncomfortable and upset.
 
 It's complicated, and I admire Carver for tackling this emotive and controversial subject so unflinchingly.
 
-<cite>Suicide Thursday</cite> is inventive, unconventional, and highly effective.
+<cite>Suicide Thursday</cite> is unconventional, complex, and highly effective.
 
 ![Suicide Thursday blog tour banner](/images/suicide-thursday-banner.jpg)
