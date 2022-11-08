@@ -23,13 +23,13 @@ Here's everything I read in my head in October...
 
 <cite>Shrines of Gaiety</cite>, by Kate Atkinson. One of my books of the year, for sure - 5*
 
-[<cite>Close to Midnight</cite>, edited by Mark Morris](/blog-tour-close-to-midnight/) - 5*
+[<cite>Close to Midnight</cite>, edited by Mark Morris](/blog-close-to-midnight/) - 5*
 
 ![A Sliver of Darkness, With Dust Shall Cover, The Pain Tourist, The Chalk Man, When Things Get Dark](/images/october-2022-collage-2.jpg)
 
 <cite>A Sliver of Darkness</cite>, by C. J. Tudor. New (to me) author to get obsessed with? Yes - 5*
 
-[<cite>With Dust Shall Cover</cite>, by Paul O'Neill](/blog-tour-with-dust-shall-cover/) - 4*
+[<cite>With Dust Shall Cover</cite>, by Paul O'Neill](/blog-close-with-dust-shall-cover/) - 4*
 
 [<cite>The Pain Tourist</cite>, by Paul Cleave](/blog-tour-the-pain-tourist/) - 4*
 
