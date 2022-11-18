@@ -20,7 +20,7 @@ BBNYA is brought to you in association with the [@Foliosociety](https://twitter.
 
 ## The book
 
-<img src="/images/dim-stars-200.jpg" alt="Miss Percy's Pocket Guide to the Care and Feeding of British Dragons" style="float: right; margin-bottom: 10px; margin-left: 10px;">
+<img src="/images/dim-stars-200.jpg" alt="Dim Stars: A Novel of Outer-Space Shenanigans" style="float: right; margin-bottom: 10px; margin-left: 10px;">
 
 > 'Kenzie Washington, fourteen-year-old girl genius, signs up for a two-week tour as a cadet on the spaceship of her idol, Captain Dash Drake. Too bad Dash, who once saved the galaxy from the evil Forgers, is a broke loser and much less than meets the eye.
 
