@@ -33,7 +33,7 @@ So, here are the books I read in November that I *am* currently allowed to opine
 
 <cite>Wyrd Sisters</cite>, by Terry Pratchett - 4.5*
 
-<cite>Case Files</cite>, by Rachel Amphlett - review coming soon! 4*
+[<cite>Case Files</cite>, by Rachel Amphlett](/blog-tour-case-files/) - 4*
 
 <cite>After Sundown</cite>, edited by Mark Morris - 4*
 
@@ -41,7 +41,7 @@ So, here are the books I read in November that I *am* currently allowed to opine
 
 ![Beyond the Veil, Witches Abroad, The Other People](/images/november-2022-collage-3.jpg)
 
-Deliberately keeping my 'plan to read' list for December light, as there are so many things on my physical and digital TBR piles that I want to read, and I'm fairly light on tours, so I want to see where the mood takes me.
+Deliberately keeping my 'plan to read' list for December light, as there are so many things on my physical and digital TBR piles that I want to read, and tours are winding down for the holidays, so I want to see where the mood takes me.
 
 Even so, I definitely want to read <cite>Witches Abroad</cite>, by Terry Pratchett, <cite>The Other People</cite>, by C. J. Tudor, and <cite>Beyond the Veil</cite> - the one Mark Morris/Flame Tree Press annual horror anthology I'm yet to devour.
 
