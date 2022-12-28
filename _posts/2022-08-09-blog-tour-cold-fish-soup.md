@@ -16,7 +16,7 @@ featured-image: /images/cold-fish-soup.jpg
 
 > 'While Adam documents the minutiae of small-town life, he lays bare experiences that are universal. His insights on family, friendship, male mental health and suicide are revealed in stories of reinvention, rapacious seagulls, interdimensional werewolves, burlesque dancing pensioners, and his compulsion towards the sea.
 
-> '<cite>Cold Fish Soup</cite> is an affectionate look at a place and its inhabitants, and the ways in which they can shape and influence someone, especially of an impressionable age. Adam’s account explores what it means to love and be shaped by a place that is under threat, and the hope – and hilarity – that can be found in community.'
+> '<cite>Cold Fish Soup</cite> is an affectionate look at a place and its inhabitants, and the ways in which they can shape and influence someone, especially of an impressionable age. Adam’s account explores what it means to love and be shaped by a place that is under threat, and the hope – and hilarity – that can be found in community.'
 
 <img src="/images/cold-fish-soup-200.jpg" alt="Cold Fish Soup" style="float: right; margin-bottom: 10px; margin-left: 10px;">
 
