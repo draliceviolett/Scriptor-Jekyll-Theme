@@ -26,7 +26,7 @@ I found this book absolutely fascinating. I'd never read a story based around a 
 
 Similarly, my knowledge of the political situation in Israel now, let alone nearly 30 years ago, is fairly basic, so it was also interesting to learn about that. Sultoon tells you all you need to know in order to understand the characters' circumstances, without overwhelming you with information.
 
-While the focus is very much on individuals' motives and experiences, the political situation affects them all, from having to hide in a shelter when the sirens go off, to having an active, albeit hidden, role in the conflict. Considering the action covers about a day and a half, the author packs in a hell of a lot of developments and revelations, with Farid's murder setting off a massive spark.
+While the focus is very much on individuals' motives and experiences, the political situation affects them all, whether it's that they need to hide in a shelter when the sirens go off, that they have an active - albeit hidden - role in the conflict. Considering the action covers about a day and a half, the author packs in a hell of a lot of developments and revelations, with Farid's murder setting off a massive spark.
 
 Something that particularly intrigued me (aside from the main whodunit, obviously!) was the volunteers' (Lola's there with her friend Samantha, and there's also Australian Tom, South African Johan and Andre, and American Dave) motivations for being there, especially those who, like Lola, weren't Jewish and therefore wouldn't have had the same level of investment in the vision of the kibbutz. These turn out to be quite varied, and not all wholesome, either.
 
