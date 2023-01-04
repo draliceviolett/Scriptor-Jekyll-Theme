@@ -36,7 +36,7 @@ Then, Teddy starts showing worrying signs of presumptuousness and possessiveness
 
 Things quickly get really unnerving and tense, and I was put through the emotional wringer hoping for a happy ending!
 
-The author has a spare, stark writing style that does a brilliant job of conveying the bleak, cold atmosphere of Rye and, for a while, makes you wonder where the story is heading. Her no holds barred descriptions of the macabre merchandise on display in Berry & Vincent, and Mr Vincent's past behaviour, made me feel both intrigued and unnerved.
+The author has a spare, stark writing style that does a brilliant job of conveying the bleak, cold atmosphere of Rye and, for a while, makes you wonder where the story is heading. Her no holds barred descriptions of the macabre merchandise on display in Berry & Vincent, and Mr Vincent's past behaviour, made me feel both compelled and unnerved.
 
 <cite>So Pretty</cite> not only makes you think about different reactions to trauma and loneliness, but also how giving a child the idea that they might turn out a certain way can make for a self-fulfilling prophecy. Ada aspires to be a better mother to Albie than her own mother was to her, while Teddy protests too much that he isn't like his father, having been closely surveilled for shared traits by his late mother. Ada is desperate for company but doesn't push it, while Teddy is forceful.
 

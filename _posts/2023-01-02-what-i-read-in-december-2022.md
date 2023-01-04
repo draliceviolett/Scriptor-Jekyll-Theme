@@ -51,7 +51,7 @@ Next Friday (13 January), it's [Emotional Madness with Mary-Ann and Mates at Col
 
 <cite>The Ghost Woods</cite>, by C. J. Cooke - 4.5*
 
-<cite>Dirt</cite>, by Sarah Sultoon - review coming soon! 4*
+[<cite>Dirt</cite>, by Sarah Sultoon](/blog-tour-dirt/) - 4*
 
 <cite>So Pretty</cite>, by Ronnie Turner - review coming soon! 3.5*
 
