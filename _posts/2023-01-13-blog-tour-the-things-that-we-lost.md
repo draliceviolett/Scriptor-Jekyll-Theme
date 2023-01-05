@@ -2,7 +2,7 @@
 date: 2023-01-13
 layout: post
 title: "Blog tour: The Things That We Lost by Jyoti Patel"
-excerpt: "<cite>The Things That We Lost</cite> is ."
+excerpt: "<cite>The Things That We Lost</cite> is an absorbing, warm, and wonderful coming-of-age story."
 featured-image: /images/the-things-that-we-lost.jpg
 ---
 
@@ -16,6 +16,12 @@ featured-image: /images/the-things-that-we-lost.jpg
 
 <img src="/images/the-things-that-we-lost-200.jpg" alt="The Things That We Lost" style="float: right; margin-bottom: 10px; margin-left: 10px;">
 
+In <cite>The Things That We Lost</cite>, by Jyoti Patel, we meet 18-year-old Nik and his mother, Avani, in 2017. Both are devastated by the recent death of Avani's father, Rohan, and Nik experiences even more emotional turmoil when he comes into possession of something formerly owned by his own father, Elliot, who died before he was born.
 
+Avani has told Nik very little about Elliot, and isn't happy that he plans to keep what he's inherited. Through Nik's perseverance and flashbacks to key scenes in his and Avani's pasts, we finally get to find out who Elliot was and what happened to him.
+
+I loved <cite>The Things That We Lost</cite> and absolutely inhaled it. It includes so many things I enjoy in a book: experiences of second- and third-generation immigrants, a coming-of-age narrative, a London setting,   
+
+<cite>The Things That We Lost</cite> is an absorbing, warm, and wonderful coming-of-age story.
 
 ![The Things That We Lost blog tour banner](/images/the-things-that-we-lost-banner.jpg)
