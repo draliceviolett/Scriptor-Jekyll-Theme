@@ -20,7 +20,9 @@ In <cite>The Things That We Lost</cite>, by Jyoti Patel, we meet 18-year-old Nik
 
 Avani has told Nik very little about Elliot, and isn't happy that he plans to keep what he's inherited. Through Nik's perseverance, and flashbacks to key scenes in his and Avani's pasts, we finally get to find out more about Elliot and what actually happened to him.
 
-I loved <cite>The Things That We Lost</cite> and absolutely inhaled it. It includes so many things I enjoy in a book: experiences of second- and third-generation immigrants, a coming-of-age narrative, a suburban London setting, chapters set in the '70s, '80s, '90s and '00s... just brilliant. Some of the characters (most notably Rohan, and Nik's friends) are so lovely, they gave me the warm-and-fuzzies.
+I loved <cite>The Things That We Lost</cite> and absolutely inhaled it. It includes so many things I enjoy in a book: lively, witty writing; experiences of second- and third-generation immigrants; a coming-of-age narrative; a suburban London setting; chapters set in the '70s, '80s, '90s and '00s... just brilliant.
+
+Some of the characters (most notably Rohan, and Nik's friends) are so lovely, they gave me the warm-and-fuzzies. They reminded me of how, when you're young, your friends' families become your friends too, and you miss them when you move to different places or grow apart.
 
 That's not to say that this book is all sweetness and light, at all. We learn that Avani was abused by her mother, and Elliot was mistreated by both of his parents. These scenes, as well those where Nik faces racism when he goes away to university outside of London, are uncomfortable to read, but necessarily so.
 
