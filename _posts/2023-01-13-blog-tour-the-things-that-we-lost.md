@@ -2,7 +2,7 @@
 date: 2023-01-13
 layout: post
 title: "Blog tour: The Things That We Lost by Jyoti Patel"
-excerpt: "<cite>The Things That We Lost</cite> is an absorbing, warm, and wonderful coming-of-age story."
+excerpt: "<cite>The Things That We Lost</cite> is an absorbing, warm, and brilliant coming-of-age story."
 featured-image: /images/the-things-that-we-lost.jpg
 ---
 
@@ -32,6 +32,6 @@ I found the mystery of Elliot utterly compelling - in fact, I think I may have b
 
 I also found it so interesting how Patel twists certain tropes. It's original and different that Nik's white parent is the one whose story requires excavation, and that when Avani and Nik travel to pour Rohan's ashes into the River Ganga, they are so grief-clouded that they barely notice their surroundings, let alone have profound and life-changing experiences associated with "going back to their roots".
 
-<cite>The Things That We Lost</cite> is an absorbing, warm, and wonderful coming-of-age story.
+<cite>The Things That We Lost</cite> is an absorbing, warm, and brilliant coming-of-age story.
 
 ![The Things That We Lost blog tour banner](/images/the-things-that-we-lost-banner.jpg)
