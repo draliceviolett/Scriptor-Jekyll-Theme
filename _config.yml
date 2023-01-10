@@ -28,7 +28,7 @@ navigation:
   - text: Blog
     url: /
   - text: About my PhD
-    url: /phd-blog/
+    url: /about-my-phd/
   - text: About me
     url: /about/
 
