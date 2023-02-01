@@ -53,7 +53,7 @@ Next Friday (13 January), it's [Emotional Madness with Mary-Ann and Mates at Col
 
 [<cite>Dirt</cite>, by Sarah Sultoon](/blog-tour-dirt/) - 4*
 
-<cite>So Pretty</cite>, by Ronnie Turner - review coming soon! 3.5*
+[<cite>So Pretty</cite>, by Ronnie Turner](/blog-tour-so-pretty/) 3.5*
 
 ## Looking ahead...
 
