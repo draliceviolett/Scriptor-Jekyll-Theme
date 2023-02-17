@@ -33,7 +33,7 @@ Anyhow, I have five complete short stories in my repertoire now. One is in the W
 
 <cite>Cold Comfort Farm</cite>, by Stella Gibbons - I wanted to like this more, because so many people seem to really love it, but a lot of the humour went over my head, and it dragged towards the end. It did amuse me when I realised that my mental image of Seth was exactly the same one I get of Nanny Ogg's cat Greebo when he's in human form. 3*
 
-<cite>Expectant</cite>, by Vanda Symon - review coming soon! 4*
+[<cite>Expectant</cite>, by Vanda Symon](/blog-tour-expectant/) - 4*
 
 <cite>Greywaren</cite>, by Maggie Stiefvater - I want to go back and re-read all the Raven Cycle and Dreamer novels again now, but will I ever have time? Probably not. 5*
 
