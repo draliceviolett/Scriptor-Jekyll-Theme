@@ -38,7 +38,7 @@ Feel disturbed if there's conflict or bad vibes between individuals in my enviro
 
 Dwell for ages on criticisms, slights, and insults that most people seem to just shrug off? Check, check, check.
 
-By interviewing Prof Michael Pluess, Walker discovers that sensitivity is regarded as a scale, rather than a binary - which makes total sense, as I couldn't relate to *everything* she described. I don't share her high level of interoception (I'm only really aware of my body if something hurts), and haven't had anything like her more spooky, difficult-to-explain experiences.
+By interviewing Prof Michael Pluess, Walker discovers that sensitivity is regarded as a scale, rather than a binary - which makes total sense, as I couldn't relate to *everything* she described. I don't share her high level of interoception (as long as my basic needs are met, I'm only really aware of my body if something hurts), and haven't had anything like her more spooky, difficult-to-explain experiences.
 
 Something else that made me punch the air while reading this book were the views of Walker and some of the experts she interviewed that the education system just isn't set up for more sensitive children.
 
@@ -58,6 +58,6 @@ Furthermore, just as <cite>Sensitive</cite> aims to change how people think abou
 
 I was naturally fascinated by Walker's interviews with experts about how sensitivity may have been considered a more desirable trait in the past, and how it's valued and rewarded in different societies and cultures. However, I do think that having a past-present-future (or present-past-future) structure to the book might have made this information more cohesive and impactful, and avoided some repetition and jumping back and forth.
 
-I'd have also liked to have seen some consideration of intersectionality - for example, how are more sensitive cis men and boys perceived and treated differently from more sensitive cis women and girls? How does the experience of being highly sensitive and Black differ from that of being highly sensitive and white?
+I'd have also liked to have seen some consideration of intersectionality - for example, are highly sensitive Black people perceived and treated differently from highly sensitive white people? Can girls and women "get away" with showing they're highly sensitive in a way that boys and men can't? 
 
 <cite>Sensitive</cite> is interesting and validating, and gave me a lot to think about.
