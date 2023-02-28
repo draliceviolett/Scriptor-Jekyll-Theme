@@ -21,21 +21,23 @@ have implications beyond anything anyone could imagine...'
 
 <img src="/images/the-space-between-us-200.jpg" alt="The Space Between Us" style="float: right; margin-bottom: 10px; margin-left: 10px;">
 
-In <cite>The Space Between Us</cite>, by Doug Johnstone, an unlikely trio of heroes have medical episodes that defy unexplanation, then go on the lam to help an extraterrestrial cephalopod evade those who wish to harm them, and reunite with the larger organism they belong to.
+In <cite>The Space Between Us</cite>, by Doug Johnstone, an unlikely trio of heroes have medical episodes that defy unexplanation, then go on the lam to help an extraterrestrial cephalopod evade those who wish to harm it, and reunite with the larger organism it belongs to.
 
 Along the way, Lennox, Ava and Heather form new bonds among themselves and with the life form Lennox christens "Sandy"; revive old connections with the people they call for help along the way; and find ways to heal - both physically and emotionally.
 
 I enjoyed reading <cite>The Space Between Us</cite>, and would recommend it to a cross-section of readers.
 
-Quite aside from the highly imaginative sci-fi element, the threat posed by both the authorities and Ava's abusive husband means there's almost constant tension and a lot at stake, while the heroes' respective circumstances give Sandy opportunities to interact with very human problems on our home ground.
+Quite aside from the highly imaginative sci-fi element, the threat posed by both the authorities and Ava's abusive husband means there's almost constant tension and a lot at stake. 
+
+The heroes' respective circumstances give Sandy opportunities to interact with very human problems on our home ground. The road trip element allows us to explore the three main characters' personalities and histories, making the resolutions they reach all the more meaningful and moving.
+
+As a young person who's never known his family, Lennox has considerably less backstory to flesh out, so it makes sense that his story is more present- and future-focussed those of Ava and Heather, as he develops the first and strongest connection with Sandy and finds in them something to be passionate about and fight for.
 
 I never thought I'd consider a multi-tentacled alien to be "sweet", but the way Sandy connected with and helped each of their rescuers, their "voice", and their peaceful intentions were so lovely and touching. This throws government agent Fellowes' nefarious mission to capture Sandy at all costs in order to do god-knows-what to them into even sharper relief.
 
 This also raises wider questions about how people would react if aliens actually did make contact with us - with genuine curiosity and attempts at understanding, or with fear and a compulsion to dominate and eliminate a potential threat?
 
-Are our "leaders" the best people to represent us to extraterrestrial visitors, or would "ordinary" people some are quick to write off - in this case, teenagers in care, battered wives, and the terminally ill - be better examples of the range and resourcefulness of humanity, and more open to what they have to say to and offer us?
-
-The youngest of the main characters, Lennox, is the first to telepathically link to Sandy, and it's due to his thirst to learn about the mysteries of the universe that we learn what Sandy is, how they're a collective consciousness rather than an isolated being, and why they've come to Earth. Lennox becomes the alien's first and most uncompromising defender, and it's touching on a number of levels.
+Are our "leaders" the best people to represent us to extraterrestrial visitors, or would "ordinary" people some are quick to write off - in this case, teenagers in care, battered wives, and the terminally ill - be better examples of the range, resourcefulness, and strength of humanity, and more open to what they have to say to and offer us?
 
 <cite>The Space Between Us</cite> is gritty, exciting, and strangely adorable.
 
