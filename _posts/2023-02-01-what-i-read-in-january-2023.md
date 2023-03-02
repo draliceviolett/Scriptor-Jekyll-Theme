@@ -47,7 +47,7 @@ Anyhow, I have five complete short stories in my repertoire now. One is in the W
 
 <cite>Sell Us the Rope</cite>, by Stephen May - 4*
 
-<cite>This Could Be Everything</cite>, by Eva Rice - review coming soon! 4.5*
+[<cite>This Could Be Everything</cite>, by Eva Rice](/blog-tour-this-could-be-everything/) - 4.5*
 
 ## Looking ahead...
 
