@@ -17,7 +17,7 @@ Anyhow, I have five complete short stories in my repertoire now. One is in the W
 
 [<cite>The Things That We Lost</cite>, by Jyoti Patel](/blog-tour-the-things-that-we-lost/) - 5*
 
-<cite>Seven Empty Houses</cite>, by Samantha Schweblin, translated by Megan McDowell - 4*
+<cite>Seven Empty Houses</cite>, by Samanta Schweblin, translated by Megan McDowell - 4*
 
 <cite>Maskerade</cite>, by Terry Pratchett - 4.5*
 
@@ -57,6 +57,6 @@ What do you do when you've read all of the Discworld Witches novels? Move on to 
 
 Having started it yesterday, I'm already halfway through <cite>Our Missing Hearts</cite> by Celeste Ng and it's going on my end-of-year list for sure. I'm usually a bit on the fence about speculative/dystopian novels, but what with Ng being one of my favourite authors, I'm loving every minute of this one.
 
-I got a taste of Samantha Schweblin's unsettling short stories last month with <cite>Seven Empty Houses</cite>, and I'm back for more with <cite>Mouthful of Birds</cite>.
+I got a taste of Samanta Schweblin's unsettling short stories last month with <cite>Seven Empty Houses</cite>, and I'm back for more with <cite>Mouthful of Birds</cite>.
 
 I'm also hoping to read <cite>Violeta</cite> by Isabel Allende, having enjoyed one of her books the other month, while Stuart MacBride is an auto-buy for me, mainly because the dark humour in his crime novels is off-the-charts.

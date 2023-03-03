@@ -19,7 +19,7 @@ Also, [<cite>The Routledge History of Loneliness</cite>](https://www.taylorfranc
 
 [<cite>Clara & Olivia</cite>, by Lucy Ashe](/blog-tour-clara-and-olivia/) - 5*
 
-<cite>Mouthful of Birds</cite>, by Samantha Schweblin, translated by Megan McDowell - 5*
+<cite>Mouthful of Birds</cite>, by Samanta Schweblin, translated by Megan McDowell - 5*
 
 [<cite>In the Meantime</cite>, by Alex Fragnière](/blog-tour-in-the-meantime/) - 5*
 
