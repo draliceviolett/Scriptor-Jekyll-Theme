@@ -15,7 +15,7 @@ Also, [<cite>The Routledge History of Loneliness</cite>](https://www.taylorfranc
 
 ![Our Missing Hearts, Clara & Olivia, Mouthful of Birds, In the Meantime](/images/february-2023-collage-1.jpg)
 
-<cite>Our Missing Hearts</cite>, by Celeste Ng - 5*
+<cite>Our Missing Hearts</cite>, by Celeste Ng - AMAZING. 5*
 
 [<cite>Clara & Olivia</cite>, by Lucy Ashe](/blog-tour-clara-and-olivia/) - 5*
 
@@ -23,15 +23,17 @@ Also, [<cite>The Routledge History of Loneliness</cite>](https://www.taylorfranc
 
 [<cite>In the Meantime</cite>, by Alex Fragnière](/blog-tour-in-the-meantime/) - 5*
 
+(Four 5* reads in a row? Pretty sure I've never done that before.)
+
 ![Violeta, Mort, Watching the Wheels, Sensitive](/images/february-2023-collage-2.jpg)
 
 <cite>Violeta</cite>, by Isabel Allende - 4*
 
 <cite>Mort</cite>, by Terry Pratchett. Re-read - 4*
 
-[<cite>Watching the Wheels</cite>,  by Simon Anthony Brotherton](/blog-tour-watching-the-wheels/) - 4*
+[<cite>Watching the Wheels</cite>, by Stephen Anthony Brotherton](/blog-tour-watching-the-wheels/) - 4*
 
-[<cite>Sensitive</cite>, by Hannah Jane Walker](/blog-tour-sensitive/) - 3.5*
+[<cite>Sensitive: The hidden strength of sensitivity and empathy</cite>, by Hannah Jane Walker](/blog-tour-sensitive/) - 3.5*
 
 ![The Space Between Us, The Dead of Winter, Bad Dreams and other stories, Bleeding Heart Yard](/images/february-2023-collage-3.jpg)
 
