@@ -36,7 +36,7 @@ Dolly, Vita, and Rollo accommodate Sunday's quirks, but as the story goes on, Do
 
 I found it interesting that, because of the way the two women present in company, many people - particularly Sunday's wealthy, confident former in-laws, the Forresters - treat Sunday like a child, but Vita as an adult.
 
-However, Vita, who's spontaneous, delights in her lack of organisation, competence and responsibility, and has a penchant for taking things that aren't hers and dropping people and things when she gets bored of them, is actually the more childlike of the two.
+However, Vita, who's spontaneous, delights in her lack of organisation, responsibility, and life skills, and has a penchant for taking things that aren't hers and dropping people and things when she gets bored of them, is actually the more childlike of the two.
 
 Contrastingly, Sunday has weathered repeated rejection, experienced devastating loss, held down a job (where she finds affinity with her colleague David, who is also socially excluded because he's deaf) run a household, and raised a child on her own. I found Vita irritating, verging on unbearable after a while - I know which of the pair I'd rather spend a day with!
 
