@@ -16,7 +16,7 @@ featured-image: /images/all-the-little-bird-hearts-banner.jpg
 
 > 'Into this carefully ordered world step Vita and Rollo, a couple who move in next door, disarm Sunday with their charm, and proceed to deliciously break just about every rule in Sunday’s book. Soon they are in and out of each others’ homes, and Sunday feels loved and accepted like never before.
 
-> 'But beneath Vita and Rollo's polish lies something else, something darker. For Sunday has something that Vita has always wanted for herself: a daughter of her own.
+> 'But beneath Vita and Rollo's polish lies something else, something darker. For Sunday has something that Vita has always wanted for herself: a daughter of her own.'
 
 <img src="/images/all-the-little-bird-hearts-200.jpg" alt="All the Little Bird-Hearts" style="float: right; margin-bottom: 10px; margin-left: 10px;">
 
