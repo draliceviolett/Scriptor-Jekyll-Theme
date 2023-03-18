@@ -40,6 +40,18 @@ a {
   }
 }
 
+details > summary {
+  cursor: pointer;
+  color: _palette(accent);
+  text-decoration: none;
+  -webkit-transition: color .3s ease;
+  transition: color .3s ease;
+  &:hover {
+    color: _palette(secondary);
+    text-decoration: underline;
+  }
+}
+
 h1,
 h2,
 h3,
