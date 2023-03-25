@@ -3,10 +3,10 @@ date: 2023-03-30
 layout: post
 title: "Blog tour: The Time Trials by Jon McConnell and Dayna McConnell"
 excerpt: "<cite>The Time Trials</cite> is a fast-paced, high-stakes time travel novel that really engages with history."
-featured-image: /images/the-time-trials.jpg
+featured-image: /images/the-time-trials-banner.jpg
 ---
 
-![The Time Trials blog tour banner](/images/the-time-trials.jpg)
+![The Time Trials blog tour banner](/images/the-time-trials-banner.jpg)
 
 **I received a free copy of this book to read and judge as part of the 2022 BBNYA competition organised by [TheWriteReads](https://www.thewritereads.com/). All opinions are my own, unbiased and honest.**
 
