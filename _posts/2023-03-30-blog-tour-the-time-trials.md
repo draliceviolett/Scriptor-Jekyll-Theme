@@ -18,7 +18,19 @@ If you want some more information about BBNYA, check out the [BBNYA website](htt
 
 BBNYA is brought to you in association with the [@Foliosociety](https://twitter.com/foliosociety/) (if you love beautiful books, you NEED to check out their website!) and the book blogger support group [@The_WriteReads](https://twitter.com/the_writereads/).
 
-> '
+> 'Walkman-toting, guitar-playing Finn Mallory blames himself for his parents' deaths and would do anything to turn back time and set things right.
+
+> 'So, when he's recruited into a secret club at his new school that specializes in competitive time travel games, Finn sees a world of opportunity open before him.
+
+> 'The games, however, are far from benign.
+
+> 'Competition is cutthroat.
+
+> 'Scenarios are rigged.
+
+> 'And the mysterious timekeepers who organize it all have no qualms about using - or disposing of - players to suit their own sinister plans.
+
+> 'Now Finn must decide who he can trust while making peace with his past if he's to have any hope of leading his team to victory and surviving his junior year.'
 
 <img src="/images/the-time-trials-200.jpg" alt="The Time Trials" style="float: right; margin-bottom: 10px; margin-left: 10px;">
 
