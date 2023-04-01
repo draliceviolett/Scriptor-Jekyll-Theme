@@ -17,7 +17,7 @@ I've found quite a lot to say about it, so if you just came here to see what I r
 
 <summary><p>Here be my extended thoughts on the 555 Story Challenge</p></summary>
 
-<p>This challenge suited me perfectly, as I'm most motivated to write when I'm given a prompt, a word limit, and a deadline (no, 21 years(!) in the British education system hasn't ruined me, what are you talking about?).</p>
+<p>This challenge suited me perfectly, as I'm most motivated to write when I'm given a prompt, a word limit, and a deadline (no, 22 years(!) in the British education system hasn't ruined me, what are you talking about?).</p>
 
 <p>I'm really pleased with what I came up with, and it's so tempting to put what I wrote on my blog right now (this is why I could never be an academic), but I must let the dust settle a bit, then look into submitting them to competitions/journals. But for now, here are five things I gained from this experience:</p>
 
@@ -57,7 +57,7 @@ I've found quite a lot to say about it, so if you just came here to see what I r
 
 ## What I read in March
 
-Going by Goodreads, I read 13 books; however, two were re-skims of books I read for [BBNYA](https://www.bbnya.com/) judging in November last year (and therefore wasn't at liberty to say I'd read them) for reviews, and one was the final couple of chapters of a book I put down in 2021 (this happened a lot that year).
+Going by Goodreads, I read 14 books; however, two were re-skims of books I read for [BBNYA](https://www.bbnya.com/) judging in November last year (and therefore wasn't at liberty to say I'd read them) for reviews, and one was the final couple of chapters of a book I put down in 2021 (this happened a lot that year).
 
 A fair bit of March was taken up with two long books - coincidentally, one was set in Japan in the past, and the other was set in Japan in the future. Both were 4.5* reads.
 
@@ -71,7 +71,7 @@ A fair bit of March was taken up with two long books - coincidentally, one was s
 
 <cite>Pachinko</cite>, by Min Jin Lee - 4.5*
 
-![Lesser Known Monsters, Beautiful Shining People, Reaper Man, Three Weeks in the Summer](/images/march-2023-collage-2.jpg)
+![Lesser Known Monsters, Beautiful Shining People, Reaper Man, Three Weeks in the Summer, The Time Trials](/images/march-2023-collage-2.jpg)
 
 [<cite>Lesser Known Monsters</cite>, by Rory Michaelson](/blog-tour-lesser-known-monsters/) - BBNYA re-skim. 4*
 
@@ -81,9 +81,11 @@ A fair bit of March was taken up with two long books - coincidentally, one was s
 
 <cite>Three Weeks in the Summer</cite>, by Paul Marriner - 3*
 
-![The Time Trials, Musicophilia, This is your Brain on Music, Go As A River, The Maiden](/images/march-2023-collage-3.jpg)
-
 [<cite>The Time Trials</cite>, by Jon McConnell and Dayna McConnell](/blog-tour-the-time-trials/) - BBNYA re-skim. 4*
+
+![Hinton Hollow Death Trip, Musicophilia, This is your Brain on Music, Go As A River, The Maiden](/images/march-2023-collage-3.jpg)
+
+<cite>Hinton Hollow Death Trip</cite>, by Will Carver - good, but I have some reservations about one of the deaths. 4*
 
 <cite>Musicophilia</cite>, by Oliver Sacks - started in 2021 (my failing, not his). 4*
 
