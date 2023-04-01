@@ -1,7 +1,7 @@
 ---
 date: 2023-04-01
 layout: post
-title: "What I read in March 2023, and my experiences of the 555 Story Challenge."
+title: "What I read in March 2023, and my experiences of the 555 Story Challenge"
 category: book-blog
 excerpt: "Last month, I mostly wrote 100-word stories and read huge novels set in Japan."
 featured-image: /images/march-2023-collage-1.jpg
