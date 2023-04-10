@@ -16,8 +16,7 @@ featured-image: /images/the-space-between-us.jpg
 
 > 'When news reaches them of an octopus-like creature washed up on the shore near where the meteor came to earth, Lennox senses that some extra-terrestrial force is at play. With the help of Ava, Heather and a journalist, Ewan, he rescues the creature they call "Sandy" and goes on the run.
 
-> 'But they aren’t the only ones with an interest in the alien... close behind are Ava’s husband, the police and a government unit who wants to capture the creature, at all costs. And Sandy’s arrival may
-have implications beyond anything anyone could imagine...'
+> 'But they aren’t the only ones with an interest in the alien... close behind are Ava’s husband, the police and a government unit who wants to capture the creature, at all costs. And Sandy’s arrival may have implications beyond anything anyone could imagine...'
 
 <img src="/images/the-space-between-us-200.jpg" alt="The Space Between Us" style="float: right; margin-bottom: 10px; margin-left: 10px;">
 
