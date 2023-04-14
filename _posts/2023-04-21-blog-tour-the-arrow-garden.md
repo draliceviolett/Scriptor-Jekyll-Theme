@@ -56,7 +56,7 @@ As I share quite a few of their traits, I found both Gareth and Mie relateable a
 
 <p>Mie experiences considerable survivor's guilt, which is also understandable. Surviving the bombing that killed her parents would probably have had that effect without the intervention, but her outlandish method of escape intensifies her feelings that she wasn't <em>meant</em> to have survived.</p>
 
-<p>It's for this reason that Mie treads so lightly for the rest of her life. While she may not go on to cure cancer or create world peace, she has remaining family and friends who love and value her, and I'm glad her story didn't end in 1945.</p>
+<p>It's for this reason that Mie treads so lightly for the rest of her life. While she may not go on to cure cancer or bring about world peace, she has remaining family and friends who love and value her, and I'm glad her story didn't end in 1945.</p>
 
 <p>In addition, there's a mind-bending predestination paradox at the heart of <cite>The Arrow Garden</cite> concerning Hiroshi's appearance and intervention in Gareth's life. I'm still turning it over in my head now!</p>
 
