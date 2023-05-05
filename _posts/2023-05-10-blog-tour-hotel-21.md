@@ -46,7 +46,9 @@ Through her incisive deductions, we're introduced to quite a few hotel guests wi
 
 While it may sound like Noelle is a horrible character &ndash; a thief, and manipulative to boot &ndash; she's actually very likeable.
 
-As you're privy to her thought processes, you know she doesn't steal or keep her distance out of malice, but as a reaction to trauma; she's trying to keep herself safe and balanced. She genuinely cares for her colleagues, but fights her own feelings because she believes she's not good enough for anyone, and that they'll only hurt her if she sticks around too long.
+As you're privy to her thought processes, you know she doesn't steal or keep her distance out of malice, but as a reaction to trauma; she's trying to keep herself safe and balanced. I felt so tense when she was stealing things, as I was so worried about what would happen to her if she got caught!
+
+She genuinely cares for her colleagues, but fights her own feelings because she believes she's not good enough for anyone, and that they'll only hurt her if she sticks around too long.
 
 I also appreciated how Noelle is queer (possibly even somewhere on the asexuality spectrum, which you don't often see in fiction), as is Phil, who particularly draws Noelle's attention because she's audacious, unusually challenging to figure out, and makes Noelle feel things she's never felt before.
 
