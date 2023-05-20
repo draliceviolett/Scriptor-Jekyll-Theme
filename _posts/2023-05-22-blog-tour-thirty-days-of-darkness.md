@@ -22,7 +22,7 @@ featured-image: /images/thirty-days-of-darkness.jpg
 
 <img src="/images/thirty-days-of-darkness-200.jpg" alt="Thirty Days of Darkness" style="float: right; margin-bottom: 10px; margin-left: 10px;">
 
-In <cite>Thirty Days of Darkness</cite>, by Jenny Lund Madsen, highbrow author and high-functioning alcoholic Hannah travels from her home in Copenhagen, Denmark, to Húsafjörður, Iceland, where her plan is to write a crime novel in a month, just to show the world how easy it is.
+In <cite>Thirty Days of Darkness</cite>, by Jenny Lund Madsen, highbrow author and functioning alcoholic Hannah travels from her home in Copenhagen, Denmark, to Húsafjörður, Iceland, where her plan is to write a crime novel in a month, just to show the world how easy it is.
 
 However, not long after Hannah arrives, her welcoming host Ella's teenage nephew, Thor, is found dead at the local harbour, and it doesn't look like an accident. Hannah's interest is piqued, and she can't help but involve herself in the investigation.
 
