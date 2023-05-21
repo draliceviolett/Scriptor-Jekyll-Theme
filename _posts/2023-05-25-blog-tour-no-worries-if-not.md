@@ -24,15 +24,15 @@ In <cite>No Worries If Not</cite>, comedy writer, spoken-word poet and actor Sop
 
 I found <cite>No Worries If Not</cite> a lively and humorous read. Through her writing, Soph comes across as bubbly and entertaining to be around, but also warm and kind, warning you when she's about to tell you something heavy, and (quite literally) holding space for you to process any feelings her stories might have brought up.
 
-In fact, it felt like Soph was having an informal conversation with me personally, regularly referring to and asking questions of "you", and confessing some of her most embarrassing moments and shameful behaviour growing up.
+It feels like Soph is having an informal conversation with the reader personally, regularly referring to and asking questions of "you", and confessing some of her most embarrassing moments and behaviour growing up.
 
 It was so refreshing to read such a candid memoir, and Soph skilfully injects humour into almost every situation. Of course, the one event in her life that defies comedy is Luke's tragic, totally unfair death at the age of 14.
 
-As Soph rightly points out, while I can sympathise, I can't possibly comprehend how she and her and her family felt, and still feel, as I've never personally experienced anything in the same ballpark. I commend her for writing about such a raw, painful thing in the detail that she does.
+As Soph rightly points out, while I can sympathise, I can't truly comprehend how she and her and her family feel, as I've never personally experienced anything in the same ballpark. I commend her for writing about such a raw, painful thing in the detail that she does.
 
-<cite>No Worries If Not</cite> is full of truth-bombs that I whole-heartedly agree with: that council estates aren't the hellholes they're made out to be (I'm lower-middle class myself, but I mixed with a lot of kids from the council terraces right next to my primary school); that teaching children that there are options other than (compulsory) heterosexuality can save a great deal of pain and homophobia, both internalised and from other pupils; that attention-*seeking* should be renamed attention-*needing*; that first love is both wonderful and terrible; that some therapists/forms of therapy (*cough* mindfulness *cough*) can make things worse; and anti-depressants save lives.
+In fact, <cite>No Worries If Not</cite> is full of truth-bombs that I whole-heartedly agree with: that council estates aren't the hellholes they're made out to be (I'm lower-middle class myself, but I mixed with a lot of kids from the council terraces right next to my primary school); that teaching children that there are options other than (compulsory) heterosexuality can save a great deal of pain and homophobia, both internalised and from other pupils; that attention-*seeking* should be renamed attention-*needing*; that first love is both wonderful and terrible; that some therapists/approaches (*cough* mindfulness *cough*) can make things worse; and anti-depressants save lives.
 
-Soph is eight years younger than me, virtually my opposite in personality, and has very different music tastes and cultural references to me, so alongside the universal truths above, <cite>No Worries If Not</cite> was an interesting insight into what it's like to be someone else. I didn't agree with her on *everything* but &ndash; as the title suggests &ndash; that's totally fine!
+Soph is eight years younger than me, virtually my opposite in personality, and has very different tastes and interests to me, so alongside the universal truths above, <cite>No Worries If Not</cite> was an interesting insight into someone else's world. I didn't agree with her on *everything* but &ndash; as the title suggests &ndash; that's totally fine!
 
 <cite>No Worries If Not</cite> is funny, candid, and devastating.
 
