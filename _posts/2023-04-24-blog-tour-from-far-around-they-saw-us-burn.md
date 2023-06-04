@@ -12,8 +12,7 @@ featured-image: /images/from-far-around-they-saw-us-burn-banner.jpg
 
 > '<cite>From Far Around They Saw Us Burn</cite> is the eagerly awaited first short story collection from Alice Jolly, one of the most exciting and accomplished voices in British fiction today.
 
-> 'The extraordinary range of work gathered here is united by a fascination with how everyday interactions can transform our lives in unpredictable ways. These are stories of lonely people,
-outcasts and misfits, and the ghosts that inhabit our intimate spaces.
+> 'The extraordinary range of work gathered here is united by a fascination with how everyday interactions can transform our lives in unpredictable ways. These are stories of lonely people, outcasts and misfits, and the ghosts that inhabit our intimate spaces.
 
 > 'The result is a compelling, arresting and, at times, devastating collection – not least in the title story, which was inspired by the tragic true events of the 1943 Cavan orphanage fire.
 

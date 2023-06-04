@@ -47,7 +47,7 @@ With so many characters &ndash; good, bad, and ambiguous &ndash; each with a wel
 
 I also liked the layers of spookiness added by the dark history of Captain's house, and Keziah's emergent gift for fortune-telling.
 
-What's more, <cite>The Fascination</cite> is brilliantly queer. The living arrangements of Captain, Aleski, Martha, Keziah, and Tilly deviate from societal norms and attract the odd assumption about what they're up to behind closed doors (saying more about the person doing the assuming than about them), and their relationships are harmonious and equitable.
+What's more, <cite>The Fascination</cite> is brilliantly queer and extols the benefits of the "found family". The living arrangements of Captain, Aleski, Martha, Keziah, and Tilly deviate from societal norms and attract the odd assumption about what they're up to behind closed doors (saying more about the person doing the assuming than about them), and their relationships are harmonious and equitable.
 
 By contrast, the twins' experiences growing up in a nuclear household were miserable. Theo, meanwhile, received far more affection from household staff, particularly his beloved governess, than from his grandfather (not an uncommon experience for only children in upper/upper middle-class families, as I found out when researching for [my thesis](https://repository.essex.ac.uk/22943/)), and Lord Seabrook's new, heir-producing heterosexual relationship pulled what little rug he had from under his feet.
 
