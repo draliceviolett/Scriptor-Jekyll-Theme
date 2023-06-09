@@ -10,7 +10,9 @@ featured-image: /images/jon-richters-dark-fiction.jpg
 
 **This post is part of a blog tour organised by [ZooLoo's Book Tours](https://zooloosbookdiary.co.uk/zooloos-blog-tours). I received a free copy of the book in return for an honest review.**
 
-> '
+> 'Jon Richter returns to horror with a new collection of short, chilling tales, splicing together his best previously published works with a batch of nerve-shredding new fiction.
+
+> 'Encompassing science fiction and fantasy as well as gothic horror and outright weirdness, the anthology is brought twitching and wriggling to life by the brilliant illustrations of David T Wilby.'
 
 It's fiendishly difficult to succinctly sum up the stories in <cite>Jon Richter's Dark Fiction</cite>, simply because they cover so much ground!
 
