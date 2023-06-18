@@ -49,7 +49,7 @@ I also read my work at another successful Emotional Madness with Mary-Ann and Ma
 
 <cite>Hogfather</cite>, by Terry Pratchett - 5*
 
-<cite>Dark Fiction</cite>, by Jon Richter - review coming soon! 4*
+[<cite>Jon Richter's Dark Fiction</cite>](/blog-tour-jon-richters-dark-fiction/) - 4*
 
 ## Looking ahead...
 
@@ -57,6 +57,6 @@ I also read my work at another successful Emotional Madness with Mary-Ann and Ma
 
 I've already started <cite>The Fascination</cite>, by Essie Fox, and it's amazing so far.
 
-I tend not to go in for many crime/thriller blog tours as I find them quite challenging to review. However, there are a couple of exceptions to my rule: appealing Orenda titles (<cite>You Can't See Me</cite>, by Eva Björg Ægisdóttir), and new additions to series I love (also <cite>You Can't See Me</cite>, and <cite>Voices of the Dead</cite>, by Ambrose Parry). I can't wait to read these!
+I tend not to go in for many crime/thriller blog tours as I find them quite challenging to review. However, there are a couple of exceptions to my rule: appealing Orenda titles (<cite>You Can't See Me</cite>, by Eva Björg Ægisdóttir), and new books by authors I love (also <cite>You Can't See Me</cite>, and <cite>Voices of the Dead</cite>, by Ambrose Parry). I can't wait to read these!
 
 I'm also planning to continue my Oliver Sacks and Terry Pratchett journeys with <cite>Migraine</cite> and <cite>Thief of Time</cite>.
