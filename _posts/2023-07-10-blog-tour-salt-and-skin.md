@@ -12,8 +12,7 @@ featured-image: /images/salt-and-skin.jpg
 
 > 'Grief-stricken and on the verge of a breakdown, photographer Luda Managan leaves Australia for a commission, bringing her two teenage children to a remote, weather-ravaged but beautiful Scottish island.
 
-> 'Luda, isolated from her two resentful teenagers, turns her attention to the records from the seventeenth-century island witch hunts and the fragmented life stories of the executed
-women.
+> 'Luda, isolated from her two resentful teenagers, turns her attention to the records from the seventeenth-century island witch hunts and the fragmented life stories of the executed women.
 
 > 'Min, her daughter, restless and strong, tries to fill up the space in their family left by her father. She soon finds comfort in both the sea and an unlikely friendship.
 
