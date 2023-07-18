@@ -36,11 +36,11 @@ While some of these connections are more prosaic &ndash; staying in touch by pho
 
 We witness characters having a psychic connection with someone still in Africa (The Failing Name), being unable to leave behind a personal curse (Simbuju and the Nameless), or calling on their ancestors' powers to curse someone in their adopted country (A Taste of Unguja).
 
-As a fan of the spooky and weird, these eerie stories especially compelled me. The collection's speculative stories about climate change and advances in technology &ndash; most notably, The Water Runner and the title story &ndash; were also among my favourites due to my particular interest in the genre.
+As a fan of the spooky and weird, these eerie stories especially compelled me. The collection's speculative stories about climate change and advances in technology &ndash; most notably, The Water Runner, and the title story &ndash; were also among my favourites due to my particular interest in the genre.
 
 The burdens placed on Black women specifically is another major theme. For example, one character experiences visions of the unlived life of her stillborn baby, putting me in mind of unconscionable racial differentials in birth outcomes globally (Phantasms of Existence); another is microchipped so she can become a data hotspot for her husband's work phone, causing her to sicken and die (Unlimited Data).
 
-However, it's not all doom and gloom - there's also space for hope, power, joy, and career success in some stories, such as Messier 94 and Rain Doesn't Fall On One Roof.
+However, it's not all doom and gloom - there's also space for hope, power, joy, and success in some stories, such as Messier 94 and Rain Doesn't Fall On One Roof.
 
 On the other side of the coin, many of the men in these women's lives &ndash; Black and white &ndash; range from merely disappointing to morally reprehensible. The focus turns to African dictators in a couple of stories.
 
