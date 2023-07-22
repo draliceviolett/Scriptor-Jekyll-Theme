@@ -18,9 +18,9 @@ featured-image: /images/scrap.jpg
 
 <img src="/images/scrap-200.jpg" alt="Scrap" style="float: right; margin-bottom: 10px; margin-left: 10px;">
 
-In <cite>Scrap</cite>, by Kathy Biggs, we follow scrapyard worker Mackie, as well as his colleagues and friends Sharon and Trev, after a 13-year-old boy, Riley, is found living in one of the cars.
+In <cite>Scrap</cite>, by Kathy Biggs, we follow scrapyard worker Mackie, as well as his colleagues and friends Sharon and Trev, after a 13-year-old boy, Riley, is found living in one of the old cars.
 
-Despite having a lot on his plate already, Mackie ends up *in loco parentis* when Riley leaves hospital, and the trio gradually persuade Riley to open up about who he is and where he came from.
+Despite having a lot on his plate already, Mackie ends up *in loco parentis* when Riley leaves hospital, and the trio persuade Riley to open up about who he is and where he came from.
 
 One thing they learn is that Riley can draw things that haven't happened yet, in places he's never been. This unusual gift helps all three of them face up to truths they've been avoiding, and make changes.
 
