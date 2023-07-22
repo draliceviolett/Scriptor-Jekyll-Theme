@@ -14,14 +14,11 @@ featured-image: /images/the-purgatory-poisoning.jpg
 
 > 'Purgatory (noun): 1. Where the dead are sent to atone; 2. A place of suffering or torment; 3. A youth hostel where the occupants play Scrabble and the mattresses are paper thin.
 
-> 'When Dave wakes up in his own personal purgatory (St Ives Youth Hostel, circa 1992), he’s shocked
-to discover he’s dead. And worse – he was murdered.
+> 'When Dave wakes up in his own personal purgatory (St Ives Youth Hostel, circa 1992), he’s shocked to discover he’s dead. And worse – he was murdered.
 
-> 'Heaven doesn’t know who did it, so with the help of two rogue angels, Dave must uncover the
-truth.
+> 'Heaven doesn’t know who did it, so with the help of two rogue angels, Dave must uncover the truth.
 
-> 'As divine forces from both sides start to play the game, can Dave get out of this alive? Or at the
-very least, with his soul intact?'
+> 'As divine forces from both sides start to play the game, can Dave get out of this alive? Or at the very least, with his soul intact?'
 
 <img src="/images/the-purgatory-poisoning-200.jpg" alt="The Purgatory Poisoning" style="float: right; margin-bottom: 10px; margin-left: 10px;">
 
