@@ -29,18 +29,17 @@ I also wrote a piece about [writing the self safely with micro creative nonficti
 
 <cite>Migraine</cite>, by Oliver Sacks - on the one hand, I learned I've been having migraines for at least 28 years (always thought they were 'just headaches' because I don't get visual disturbances), and I seem to be dealing with them better after reading this. On the other hand, it's a bit boring and repetitive, and I prefer his books that go all-in on the case studies. 3.5*
 
-<cite>You Can't See Me</cite>, by Eva Björg Ægisdóttir, translated by Victoria Cribb - review coming soon! 4.5*
+[<cite>You Can't See Me</cite>, by Eva Björg Ægisdóttir, translated by Victoria Cribb](/blog-tour-you-cant-see-me/) - 4.5*
 
-<cite>Danged Black Thing</cite>, by Eugen Bacon - review coming at some point! 4*
+[<cite>Danged Black Thing</cite>, by Eugen Bacon](/danged-black-thing-by-eugen-bacon/) - 4*
 
 ![The Ghost Theatre, The Three of Us, Lessons in Chemistry](/images/june-2023-collage-3.jpg)
 
 <cite>The Ghost Theatre</cite>, by Mat Osman - 4*
 
-<cite>The Three of Us</cite>, by Ore Agbaje-Williams - review coming soon! 4*
+[<cite>The Three of Us</cite>, by Ore Agbaje-Williams](/blog-tour-the-three-of-us/) - 4*
 
 <cite>Lessons in Chemistry</cite>, by Bonnie Garner - it could never possibly live up to the hype, but I enjoyed it nonetheless. 4*
-
 
 ## Looking ahead...
 
