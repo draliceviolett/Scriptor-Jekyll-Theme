@@ -49,7 +49,7 @@ Anyway, books!
 
 [<cite>13 Doors</cite>, by G J Phelps](/blog-tour-13-doors/) - 4.5*
 
-<cite>The Polite Act of Drowning</cite>, by Charlene Hurtubise - review coming soon! 5*
+<cite>The Polite Act of Drowning</cite>, by Charleen Hurtubise - review coming soon! 5*
 
 ![The Apartment Upstairs, Little Sister, Life Among the Savages](/images/july-2023-collage-3.jpg)
 
