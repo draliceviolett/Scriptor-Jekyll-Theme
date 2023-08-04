@@ -14,8 +14,7 @@ featured-image: /images/clara-and-olivia.jpg
 
 > 'Sisters Olivia and Clara rehearse with Ninette de Valois at the recently opened Sadler’s Wells. Disciplined and dedicated, Olivia is the perfect ballerina. But no matter how hard she works, she can never match up to identical twin Clara's charm.
 
-> 'As rehearsals intensify for the ballet Coppélia, the girls feel increasingly as if they are being
-watched. And as infatuation threatens to become obsession, the fragile perfection of their
+> 'As rehearsals intensify for the ballet Coppélia, the girls feel increasingly as if they are being watched. And as infatuation threatens to become obsession, the fragile perfection of their
 lives starts to unravel.'
 
 <img src="/images/clara-and-olivia-200.jpg" alt="Clara & Olivia" style="float: right; margin-bottom: 10px; margin-left: 10px;">
