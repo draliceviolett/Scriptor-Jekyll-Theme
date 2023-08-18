@@ -48,7 +48,7 @@ I additionally loved the interactions between Jamila and her British-born childr
 
 I found this book a very quick read, as events move fast. While this frenetic pace makes it highly compulsive, it does come at the expense of exploring some of the themes in more depth, and character development.
 
-For example, I'd have liked to have seen more about the effects of trauma (both in terms of immediate response to threatening situations, and long-term effects) on Ayesha and Kamil, as well as perhaps some of the people in Kamil's support group. I also wanted to know a bit more about Jamila and her husband Akbar's backstory, as I grew very fond of them.
+For example, I'd have liked to have seen more about the effects of trauma (both in terms of immediate response to threatening situations, and long-term effects) on Ayesha and Kamil, as well as perhaps some of the people in Kamil's support group.
 
 Alongside out-and-out villain Raza and consistently awful Neelam, Ayesha and Kamil seem to encounter a disproportionate number of unpleasant, rude minor characters who have no opportunity to show any redeeming qualities or contrition.
 
