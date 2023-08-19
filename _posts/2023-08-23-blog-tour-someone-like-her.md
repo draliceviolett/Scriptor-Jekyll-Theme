@@ -36,9 +36,11 @@ But Raza has eyes everywhere, and it's not long before he tracks Ayesha down for
 
 <cite>Someone Like Her</cite> certainly puts you through the emotional wringer! I immediately warmed to strong-minded, independent Ayesha, so I felt a great deal of sympathy for her throughout the book.
 
-Not only does she have to deal with the frustration caused by Raza refusing to take no for an answer, but she's also trying to fight the traditional values impressed upon her by her family (including her mum's nasty sister, Neelam) and Pakistani society at large.
+Not only does she have to deal with the frustration caused by Raza refusing to take no for an answer, but she's also trying to fight the traditional values impressed upon her by her family (including her mum's nasty sister, Neelam) and Pakistan's patriarchal society at large.
 
-And that's to say nothing of the shocking, heinous things Raza does to her, or how people speak to and treat her following the first incident.
+These tensions are also evident in what Ayesha's parents say and do. You can see that they love her and want her to be happy, and are ultimately on her side. However, at the same time, they're also subject to social pressures, and have imbibed the conservative attitudes that Ayesha rejects.
+
+And that's to say nothing of the shocking, heinous things Raza does to Ayesha, or how people speak to and treat her following the first incident.
 
 The author does a good job of making it clear how impossible Ayesha's situation becomes: Raza and his family are so powerful, they can ruin Ayesha's parents financially or even have them killed, and they have the police in their pockets. It's very much not just a case of continuing to refuse Raza until he gets the message.
 
@@ -50,9 +52,7 @@ I found this book a very quick read, as events move fast. While this frenetic pa
 
 For example, I'd have liked to have seen more about the effects of trauma (both in terms of immediate response to threatening situations, and long-term effects) on Ayesha and Kamil, as well as perhaps some of the people in Kamil's support group.
 
-Alongside out-and-out villain Raza and consistently awful Neelam, Ayesha and Kamil seem to encounter a disproportionate number of unpleasant, rude minor characters who have no opportunity to show any redeeming qualities or contrition.
-
-An exception to this is Kamil's colleague Angela, although really, she ought to have been frogmarched to HR before the story even began!
+Alongside out-and-out villain Raza and consistently awful Neelam, Ayesha and Kamil seem to encounter a disproportionate number of unpleasant, rude minor characters, all but one of whom have no opportunity to show any redeeming qualities or contrition.
 
 <cite>Someone Like Her</cite> is compulsive, fast-paced and emotive.
 
