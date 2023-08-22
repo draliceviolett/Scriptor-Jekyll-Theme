@@ -52,7 +52,7 @@ I found this book a very quick read, as events move fast. While this frenetic pa
 
 For example, I'd have liked to have seen more about the effects of trauma (both in terms of immediate response to threatening situations, and long-term effects) on Ayesha and Kamil, as well as perhaps some of the people in Kamil's support group.
 
-This could also have enabled the details of Kamil's experience to emerge more organically through disjointed thoughts and behaviour, rather as a well-organised and cohesive story he tells in one sitting.
+This could also have enabled the details of Kamil's experience to emerge more organically through disjointed thoughts and behaviour, rather than as a well-organised and cohesive story he tells in one sitting.
 
 <cite>Someone Like Her</cite> is compulsive, fast-paced and emotive.
 
