@@ -48,13 +48,11 @@ But there are moments of joy, too. It's heart-warming to see Ayesha find purpose
 
 I loved the interactions between Jamila and her British-born children (Kamil has a sister, Sharmeela), who are often lovingly exasperated with her, as well as the perennial, trans-national joke that Neelam's husband was once a roadside shoe-shiner (Neelam is always quick to clarify that he actually *owned a shoe polish factory* on the Bosan Road).
 
-I found this book a very quick read, as events move fast. While this frenetic pace makes it highly compulsive, it does sometimes come at the expense of depth and exploration.
+I found this book a very quick read, as events move fast. While this frenetic pace makes it highly compulsive, it does sometimes come at the expense of depth and character development.
 
 For example, I'd have liked to have seen more about the effects of trauma (both in terms of immediate response to threatening situations, and long-term effects) on Ayesha and Kamil, as well as perhaps some of the people in Kamil's support group.
 
 This could also have enabled the details of Kamil's experience to emerge more organically through disjointed thoughts and behaviour, rather as a well-organised and cohesive story he tells in one sitting.
-
-Additionally, alongside out-and-out villain Raza and consistently awful Neelam, Ayesha and Kamil seem to encounter a disproportionate number of unpleasant, rude minor characters, all but one of whom have no opportunity to show any other sides to themselves, or contrition.
 
 <cite>Someone Like Her</cite> is compulsive, fast-paced and emotive.
 
