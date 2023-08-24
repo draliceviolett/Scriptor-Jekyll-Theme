@@ -1,6 +1,11 @@
 {
   "links": [
-
+    {
+      "title": "Mastodon",
+      "icon": "fa-mastodon",
+      "url": "https://ohai.social/@alicemcalicepants"
+    },
+    
     {
       "title": "Instagram",
       "icon": "fa-instagram",
