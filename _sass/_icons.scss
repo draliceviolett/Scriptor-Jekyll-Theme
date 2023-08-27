@@ -6,11 +6,11 @@
   font-family: 'FontAwesome';
   src:
     url('../fonts/fa-brands-400.woff2?471qre') format('woff2'),
+        url('../fonts/brands.svg?471qre#FontAwesome') format('svg'),
     url('../fonts/fa-brands-400.ttf?471qre') format('truetype'),
-    url('../fonts/brands.svg?471qre#FontAwesome') format('svg'),
     url('../fonts/fa-v4compatibility.woff2?471qre') format('woff2'),
-    url('../fonts/fa-v4compatibility.ttf?471qre') format('truetype'),
-    url('../fonts/fontawesome.svg?471qre#FontAwesome') format('svg');
+    url('../fonts/fontawesome.svg?471qre#FontAwesome') format('svg'),
+    url('../fonts/fa-v4compatibility.ttf?471qre') format('truetype');
   font-weight: normal;
   font-style: normal;
 }
