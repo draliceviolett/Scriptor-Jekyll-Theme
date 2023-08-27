@@ -32,7 +32,7 @@ My favourites of these were Rachael K. Jones' Oil Under Her Tongue where, accomp
 
 I was also spellbound by the pieces that bring creative new perspectives to traditional stories.
 
-Highlights among these are Dee Warwick's Nobody Lives in the Swamp, which queers a rusalka of Slavic folklore and relocates her to Amsterdam; Cassandra Khaw's What We Have Chosen to Love, where the male Chosen One delegates the heroic challenges he's presented with to more suitable combatants (his wife, for example); and Eugenia Triantafyllou's April Teeth, which reimagines the mythology of the tooth fairy in a thrillingly horrifying way.
+Highlights among these are Dee Warwick's Nobody Lives in the Swamp, which queers a rusalka of Slavic folklore and relocates her to Amsterdam; Cassandra Khaw's What We Have Chosen to Love, where the Chosen One delegates the heroic challenges he's presented with to more suitable combatants (his wife, for example); and Eugenia Triantafyllou's April Teeth, which reimagines the mythology of the tooth fairy in a thrillingly horrifying way.
 
 Other stories that terrified and entertained me in equal measure were the ones that portray scarily plausible undesirable outcomes of developing technology, and dystopic solutions to current concerns.
 
