@@ -38,7 +38,7 @@ Other stories that terrified and entertained me in equal measure were the ones t
 
 Of these, I most liked Jo Miles' Choose Your Truth, where rival factions compete for people's (measurable) attention by creating convincing fake news and discrediting their opponents' narratives; and Russell Nichols' Rage Against the Venting Machine, where people can release their anger in public booths which promise to convert it to energy in the near future &ndash; and are conveniently located to defuse the people who have the most to be angry and protest about.
 
-And then there's Sarah Pinsker's Everything is Closed Today. Written in 2019, this story of community organisation during a period when virtually everywhere has had to close down, and people can't make rent because they can't go to work, turned out to be spookily prescient.
+And then there's Sarah Pinsker's Everything is Closed Today. Written in 2019, this story of community organisation during a period when virtually everywhere has had to close down, and people can't make rent because they can't go to work, turned out to be eerily prescient.
 
 While people can meet in this story (the threat is terror-related rather than contagious) and the whole "in it together" thing largely died a death after restrictions lifted in real life, the experience of reading it must be different now to what it was pre-pandemic. It certainly reminded me what a strange, surreal time the first lockdown was!
 
