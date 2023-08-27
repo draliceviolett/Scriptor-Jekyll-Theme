@@ -34,7 +34,7 @@ I was also spellbound by the pieces that bring creative new perspectives to trad
 
 Highlights among these are Dee Warwick's Nobody Lives in the Swamp, which queers a rusalka of Slavic folklore and relocates her to Amsterdam; Cassandra Khaw's What We Have Chosen to Love, where the male Chosen One delegates the heroic challenges he's presented with to more suitable combatants (his wife, for example); and Eugenia Triantafyllou's April Teeth, which reimagines the mythology of the tooth fairy in a thrillingly horrifying way.
 
-Other stories that terrified and entertained me in equal measure were the ones that portray scarily plausible dystopic solutions to current concerns, and undesirable outcomes of developing technology.
+Other stories that terrified and entertained me in equal measure were the ones that portray scarily plausible undesirable outcomes of developing technology, and dystopic solutions to current concerns.
 
 Of these, I most liked Jo Miles' Choose Your Truth, where rival factions compete for people's (measurable) attention by creating convincing fake news and discrediting their opponents' narratives; and Russell Nichols' Rage Against the Venting Machine, where people can release their anger in public booths which promise to convert it to energy in the near future &ndash; and are conveniently located to defuse the people who have the most to be angry and protest about.
 
