@@ -12,7 +12,7 @@ featured-image: /images/do-not-go-quietly.jpg
 
 > 'Resistance. Revolution. Standing up and demanding to have your space, your say, your right to be.
 
-> 'From small acts of defiance to protests that shut down cities, <em>Do Not Go Quietly</em> is an anthology of science fiction and fantasy short stories about those who resist.
+> 'From small acts of defiance to protests that shut down cities, <cite>Do Not Go Quietly</cite> is an anthology of science fiction and fantasy short stories about those who resist.
 
 > 'Within this anthology, we will chronicle the fight for what is just and right, and what that means: from leading revolutions to the simple act of saying “No.”
 
@@ -32,7 +32,7 @@ My favourites of these were Rachael K. Jones' Oil Under Her Tongue where, accomp
 
 I was also spellbound by the pieces that bring creative new perspectives to traditional stories.
 
-Highlights among these are Dee Warwick's Nobody Lives in the Swamp, which queers a rusalka of Slavic folklore and relocates her to Amsterdam; Cassandra Khaw's What We Have Chosen to Love, where the male Chosen One delegates the heroic challenges he's presented with to more suitable combatants; and Eugenia Triantafyllou's April Teeth, which reimagines the mythology of the tooth fairy in a thrillingly horrifying way.
+Highlights among these are Dee Warwick's Nobody Lives in the Swamp, which queers a rusalka of Slavic folklore and relocates her to Amsterdam; Cassandra Khaw's What We Have Chosen to Love, where the male Chosen One delegates the heroic challenges he's presented with to more suitable combatants (his wife, for example); and Eugenia Triantafyllou's April Teeth, which reimagines the mythology of the tooth fairy in a thrillingly horrifying way.
 
 Other stories that terrified and entertained me in equal measure were the ones that portray scarily plausible dystopic solutions to current concerns, and undesirable outcomes of developing technology.
 
