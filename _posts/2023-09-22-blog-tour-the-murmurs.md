@@ -32,11 +32,11 @@ In the present day, meanwhile, the fact of her recently-recovered memories threa
 
 Right from the start, I was captivated by the scary idea of the murmurs. I was agog as Annie experienced her first vision as an adult and attempted to avert the events she foresaw, only for them to play out as envisioned anyway, and found her reaction to this realistic and proportionate.
 
-I enjoyed the scenes from Annie's childhood and just before, which are brimming with fascinating drama and details that become important later on, while Moira's account of the falling-out of an earlier set of twins has the feeling of an adult fairy tale.
+I enjoyed the scenes from Annie's childhood and just before, which are brimming with fascinating drama and details that become important later on, while Moira's account of the falling-out of an earlier set of twins has the feeling of a fairy tale.
 
 I really liked Annie as a character, sympathising with her frustration about all that had been kept from her over the years, understanding her reactions to the trauma she went through as a child, and admiring her courage and will to live a normal life despite her curse.
 
-I also appreciated how Annie had a good relationship with Lewis, as well as the family friends who took the pair in following their father's death, not long after the loss of their mother. In addition to providing much-needed support, Annie's brother and adoptive parents counter the tragedy in her life with stability and joy.
+I also appreciated how Annie had a good relationship with Lewis, as well as the family friends who took the pair in following their father's death, not long after the loss of their mother. In addition to providing much-needed support, Annie's brother and adoptive parents counter the tragedy in her life with comfort, stability, and joy.
 
 This book is absolutely gripping, with cliffhangers, tension, and surprising revelations at virtually every turn. However, there were points where the author might have eased off on this without making the story any less compelling.
 

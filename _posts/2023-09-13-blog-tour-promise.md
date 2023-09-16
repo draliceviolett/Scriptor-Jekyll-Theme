@@ -34,7 +34,7 @@ Some of my favourite stories here (Paper Dragonfly, Paper Mountain; The Laffun H
 
 My absolute favourite in the collection, though, was Flexible Off-Time, where the innovation is a virtual reality you can inhabit for what feels like a couple of weeks, but is a day for every minute in real time. The main character uses the facility to write a biography of her elderly father without leaving him for too long, but things don't go according to plan.
 
-As well as finding this story highly inventive, well thought-through, trippy, scary, and sad, I loved its mini-examination of what makes a biography. The character initially drafts a straightforward account of her father's life, then improves it by adding her own throughts and memories, but eventually over-eggs the pudding as her "subjective time" away stretches on and on and she keeps writing.
+As well as finding this story highly inventive, well thought-through, trippy, scary, and sad, I loved its mini-examination of what makes a biography. The character initially drafts a straightforward account of her father's life, then improves it by adding her own thoughts and memories, but eventually over-eggs the pudding as her "subjective time" away stretches on and on and she keeps writing.
 
 Similarly, Fables of the Future, as well as the title story, appealed to me because in them, characters are given time and space to try to create something, albeit in unconventional circumstances. Maybe I need a writing retreat myself... I don't think I'll be utilising Flexible Off-Time's services though, somehow!
 
