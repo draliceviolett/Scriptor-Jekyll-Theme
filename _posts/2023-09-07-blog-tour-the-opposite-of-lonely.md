@@ -16,7 +16,7 @@ featured-image: /images/the-opposite-of-lonely.jpg
 
 > 'Daughter Jenny is searching for her missing sister-in-law, who disappeared in tragic circumstances, while grand-daughter Hannah is asked to investigate increasingly dangerous conspiracy theorists, who are targeting a retired female astronaut ... putting her own life at risk.
 
-> 'With a body lost at sea, funerals for those with no one to mourn them, reports of strange happenings in outer space, a funeral crasher with a painful secret, and a violent attack on one of the family, The Skelfs face their most personal – and perilous – cases yet. Doing things their way may cost them everything...
+> 'With a body lost at sea, funerals for those with no one to mourn them, reports of strange happenings in outer space, a funeral crasher with a painful secret, and a violent attack on one of the family, The Skelfs face their most personal – and perilous – cases yet. Doing things their way may cost them everything...'
 
 <img src="/images/the-opposite-of-lonely-200.jpg" alt="The Opposite of Lonely" style="float: right; margin-bottom: 10px; margin-left: 10px;">
 
