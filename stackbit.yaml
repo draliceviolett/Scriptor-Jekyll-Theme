@@ -159,7 +159,7 @@ models:
     type: page
     label: Post
     template: post
-    folder: _posts
+    folder: _posts/
     fields:
       - name: title
         type: string

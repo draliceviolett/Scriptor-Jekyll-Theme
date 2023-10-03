@@ -2,7 +2,7 @@
 date: 2023-10-06
 layout: post
 title: "Blog tour: Song of the Sun God by Shankari Chandran"
-excerpt: "<cite>Song of the Sun God</cite> is a fascinating and tender family saga that's written beautifully and unflinchingly."
+excerpt: "<cite>Song of the Sun God</cite> is a fascinating, tender, and humorous family saga."
 featured-image: /images/song-of-the-sun-god.jpg
 ---
 
@@ -28,18 +28,16 @@ In the intervening years, the couple raise three children &ndash; Priya, Nandan,
 
 The family stay in their homeland for as long as they dare, but eventually the civil war comes too close to home. Only Dhara stays in Sri Lanka, as she feels called to provide medical care to Tamil casualties.
 
-Reading <cite>Song of the Sun God</cite> was such an emotional experience! The author describes whimsical domestic scenes and brutal war crimes &ndash; and everything in between &ndash; with such skill, you can't help but be affected.
+Reading <cite>Song of the Sun God</cite> was such an emotional experience! The author describes whimsical domestic scenes, brutal war crimes, and everything in between, with such skill that you can't help but be moved.
 
-I fell in love with all of the principal characters (the story largely focuses on the women's experiences), but especially Rajan and Nala, not only because the novel spans almost their entire lives, but because they're so warm and kind. Their very different personalities complement one another and generate a great deal of humour.
+I fell in love with all of the principal characters (the story largely focuses on the women's experiences), but especially Rajan and Nala, because I got to know them so well over the course of the book, and they're so warm and kind. Their very different personalities complement one another and generate a great deal of humour.
 
-(more stuff I loved about the characters/their interactions)
+There are lots of tender, touching, and funny interactions, with my favourites being those between particularly young and old characters. I also enjoyed seeing family lore and in-jokes, favourite stories from the <cite>Mahabharata</cite>, and individual characters' tastes and quirks emerge and resurface throughout the novel, building up a convincing collective memory.
 
-Embarrassingly, I didn't even know there *was* a civil war in Sri Lanka before I read this book, let alone that it went on for 26 years and ended as recently as 2009.
+Embarrassingly, I didn't even know there *was* a civil war in Sri Lanka before I read this book, let alone that it went on for 26 years and ended as recently as 2009. It was interesting to learn about both the country and the conflict, with many of the war scenes being (necessarily) breath-takingly shocking.
 
-I remember being taught a fair bit about India in primary school in the 1990s (including the story of Rama and Sita, which is a touchstone for the characters in <cite>Song of the Sun God</cite>), but Sri Lanka was never much more than a name on the maps we coloured in. It was interesting to learn about both the country and the conflict, with many of the war scenes being (necessarily) breath-takingly shocking.
+I was also fascinated by the characters' migration experiences: why they chose to leave or stay in Sri Lanka; how leaving was a last resort for Rajan and Nala, who had the longest and strongest attachments to the country; how they stayed in close contact with those they left behind despite the distance; and what they held on to from Sri Lanka and picked up in Australia, in terms of both physical objects and cultural customs. Nala's newfound veneration of Oprah really tickled me!
 
-(stuff about the migration experience)
-
-<cite>Song of the Sun God</cite> is a fascinating and tender family saga that's written beautifully and unflinchingly.
+<cite>Song of the Sun God</cite> is a fascinating, tender, and humorous family saga.
 
 ![Song of the Sun God blog tour banner](/images/song-of-the-sun-god-banner.jpg)

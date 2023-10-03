@@ -47,7 +47,7 @@ I know, deep down, that loads of really talented writers will have entered, and 
 
 <cite>Normal Rules Don't Apply</cite>, by Kate Atkinson - 5*
 
-<cite>The Opposite of Lonely</cite>, by Doug Johnstone - review coming soon! 4*
+[<cite>The Opposite of Lonely</cite>, by Doug Johnstone](/blog-tour-the-opposite-of-lonely/) 4*
 
 <cite>The Whispering Muse</cite>, by Laura Purcell - 3.5*
 
