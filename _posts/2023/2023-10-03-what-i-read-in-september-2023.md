@@ -37,9 +37,9 @@ I did a writing challenge that gave me ten days to write a story with a word lim
 
 ![The Beaver Theory, Song of the Sun God, Never Wake, The Horror of Haglin House](/images/september-2023-collage-3.jpg)
 
-<cite>The Beaver Theory</cite>, by Antti Tuomainen, translated by David Hackston - review coming soon! 3.5*
+[<cite>The Beaver Theory</cite>](/blog-tour-the-beaver-theory/), by Antti Tuomainen, translated by David Hackston - 3.5*
 
-<cite>Song of the Sun God</cite>, by Shankari Chandran - review coming soon! 4.5*
+[<cite>Song of the Sun God</cite>](/blog-tour-song-of-the-sun-god/), by Shankari Chandran - 4.5*
 
 <cite>Never Wake: An Anthology of Dream Horror</cite>, edited by Kenneth W. Cain and Tim Meyer - 4*
 

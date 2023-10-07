@@ -26,7 +26,7 @@ After just a few stories, my wishlist had grown substantially, as I'd added so m
 
 As the blurb suggests, <cite>Darkness Beckons</cite> covers all sorts of ground, encompassing timeless-feeling folk horror, dark academia, perception-altering illnesses, mythical entities, creepy crawlies, horrors yet to come, and various types of haunting.
 
-Further variety might have been achieved, though, by looking beyond the UK, America, and Australia, where all of the contributors are from, and almost all of the stories are set.
+Further variety might have been achieved, though, by looking beyond the UK, the US, and Australia, where all of the contributors are from, and almost all of the stories are set.
 
 As mentioned above, this is a strong collection where all the stories captured my imagination, as I wanted to know where each one was going. However, as with any anthology, I had favourites that particularly appealed to my tastes and left a lasting impression.
 
