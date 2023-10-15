@@ -1,5 +1,5 @@
 ---
-date: 2023-10-18
+date: 2023-10-17
 layout: post
 title: "Blog tour: Stigma by Jørn Lier Horst and Thomas Enger, translated by Megan Turney"
 excerpt: "<cite>Stigma</cite> is gripping, fast-paced, and evocative."
