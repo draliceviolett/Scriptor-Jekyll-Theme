@@ -19,6 +19,10 @@ hide_from_search: yes
 
 ## Saturday 21 October 2023
 
+<cite>Princess Amnesia</cite>, 5.30pm, Headgate Theatre
+
+[https://www.colchesterfringe.com/princessamnesia](https://www.colchesterfringe.com/princessamnesia)
+
 <cite>Dirty</cite>, 8:30pm, Mercury Theatre (Studio) (**NB I'm in seat B11**)
 
 [https://www.colchesterfringe.com/dirty](https://www.colchesterfringe.com/dirty)
