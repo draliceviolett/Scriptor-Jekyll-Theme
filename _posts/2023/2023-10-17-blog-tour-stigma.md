@@ -10,7 +10,7 @@ featured-image: /images/stigma.jpg
 
 **This post is part of a blog tour organised by [Random Things Blog Tours](http://randomthingsthroughmyletterbox.blogspot.com/p/services-to-publishers-authors-blog.html). I received a free copy of the book in return for an honest review.**
 
-> "Alexander Blix is a broken man. Convicted for avenging his daughter’s death, he is now being held in one of Norway’s high-security prisons. Inside, the other prisoners take every opportunity to challenge and humiliate the former police investigator.
+> 'Alexander Blix is a broken man. Convicted for avenging his daughter’s death, he is now being held in one of Norway’s high-security prisons. Inside, the other prisoners take every opportunity to challenge and humiliate the former police investigator.
 
 > 'On the outside, Blix’s former colleagues have begun the hunt for a terrifying killer. Walter Kroos has escaped from prison in Germany and is making his way north.
 

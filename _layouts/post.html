@@ -20,13 +20,7 @@ layout: default
     <div class="post-content">
       {{content}}
     </div><!-- .post-content -->
-    <div class="post-share">
-      <span>Share:</span>
-      <a target="_blank"
-        href="https://twitter.com/intent/tweet?text={{ page.title | uri_escape }}&amp;url={{ page.url | absolute_url }}" rel="noopener">Twitter</a>
-      <a target="_blank"
-        href="https://www.facebook.com/sharer/sharer.php?u={{ page.url | absolute_url }}&amp;t={{ page.title | uri_escape }}" rel="noopener">Facebook</a>
-    </div><!-- .share-post -->
+
     {% if page.previous.url or page.next.url %}
 
   <div class="pv5 flex-ns column-gap items-baseline">
