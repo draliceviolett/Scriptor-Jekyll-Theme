@@ -1,7 +1,7 @@
 ---
 date: 2023-11-08
 layout: post
-title: "Blog tour: Private Inquiries by Caitlin Davies"
+title: "Blog tour: Private Inquiries: The Secret History of Female Sleuths by Caitlin Davies"
 excerpt: "<cite>Private Inquiries</cite> is an interesting and thought-provoking dive into the history of female private investigators."
 featured-image: /images/private-inquiries.jpg
 ---

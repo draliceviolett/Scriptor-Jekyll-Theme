@@ -1,7 +1,7 @@
 ---
 date: 2023-10-12
 layout: post
-title: "Blog tour: Darkness Beckons, edited by Mark Morris"
+title: "Blog tour: Darkness Beckons edited by Mark Morris"
 excerpt: "<cite>Darkness Beckons</cite> is a stellar collection of engaging, intriguing, and memorable horror stories."
 featured-image: /images/darkness-beckons.jpg
 ---
