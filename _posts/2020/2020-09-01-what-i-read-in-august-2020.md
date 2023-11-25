@@ -4,20 +4,14 @@ layout: post
 title: "What I read in August 2020"
 category: book-blog
 excerpt: "Using up my annual leave = lots of time for reading and blogging!"
-featured-image: /images/august-2020-collage-1.jpg
+featured-image: /images/august-2020-collage-2.jpg
 ---
-
-I read another 17 books in August, and published nine reviews, seven of which were blog tour stops. Good thing I had lots of days off as I needed to use up my annual leave - it's weird taking holiday when there's not really anywhere to go...
-
-![The Narrow Land, Cry Baby, Blood & Sugar, Anyone for Edmund?, The Adventures of China Iron](/images/august-2020-collage-1.jpg)
 
 <cite>The Narrow Land</cite>, by Christine Dwyer Hickey - 4*
 
 <cite>Cry Baby</cite>, by Mark Billingham - loved the 90s vibe and the first meeting between Thorne and Hendricks. 5*
 
 <cite>Blood and Sugar</cite>, by Laura Shepherd-Robinson - 4*
-
-[<cite>Anyone for Edmund?</cite>, by Simon Edge](/blog-tour-anyone-for-edmund/) - 5*
 
 <cite>The Adventures of China Iron</cite>, by Gabriela Cabezón Cámara - 4*
 
@@ -33,15 +27,11 @@ I read another 17 books in August, and published nine reviews, seven of which we
 
 [<cite>The Quality of Mercy</cite>, by Malia Zaidi](/blog-tour-the-quality-of-mercy/) - 4*
 
-![Not the Life Imagined, The Seventh Train, Still Life, V for Victory](/images/august-2020-collage-3.jpg)
-
 [<cite>Not the Life Imagined</cite>, by Anne Pettigrew](/blog-tour-not-the-life-imagined/) - 4*
 
 <cite>The Seventh Train</cite>, by Jackie Carreira - 4*
 
 <cite>Still Life</cite>, by Val McDermid - nothing but respect for my Queen of Crime. 5*
-
-[<cite>V for Victory</cite>, by Lissa Evans](/blog-tour-v-for-victory/) - 4.5*
 
 ![Broadwater, Road to Mercy, Reasons to Be Cheerful, The Good Son](/images/august-2020-collage-4.jpg)
 

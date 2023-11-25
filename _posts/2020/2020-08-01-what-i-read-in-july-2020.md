@@ -58,11 +58,3 @@ When I wasn't reading more books than I realised, I watched <cite>Little Fires E
 [<cite>The Many Lives of Heloise Starchild</cite>, by John Ironmonger](/the-many-lives-of-heloise-starchild-by-john-ironmonger/) - 4.5*
 
 [<cite>The Stray Cats of Homs</cite>, by Eva Nour](/blog-tour-the-stray-cats-of-homs/) - 4*
-
-## Looking ahead...
-
-![Cry Baby, The Narrow Land, Blood & Sugar, V for Victory, Still Life](/images/july-2020-collage-5.jpg)
-
-Putting <cite>The Narrow Land</cite> and <cite>Blood & Sugar</cite> on the list again because I really do want to read them and mean to do so this month!
-
-New books from Mark Billingham, Val McDermid and Lissa Evans are always a must-read-ASAP treat, and I'm excited to be on the <cite>V for Victory</cite> blog tour!
