@@ -1,7 +1,7 @@
 ---
 date: 2023-12-01
 layout: post
-title: "Blog tour: Spread: Tales of Deadly Fauna edited by R.A. Clarke"
+title: "Blog tour: Spread: Tales of Deadly Flora edited by R.A. Clarke"
 excerpt: "<cite>Spread</cite> is an exciting, lush, and highly imaginative anthology."
 featured-image: /images/spread.jpg
 ---
@@ -26,7 +26,7 @@ featured-image: /images/spread.jpg
 
 <img src="/images/spread-200.jpg" alt="Spread" style="float: right; margin-bottom: 10px; margin-left: 10px;">
 
-<cite>Spread: Tales of Deadly Fauna</cite>, edited by R.A. Clarke, features ten stories where weird and (sometimes, initially) wonderful plants drive the plot (no pun intended).
+<cite>Spread: Tales of Deadly Flora</cite>, edited by R.A. Clarke, features ten stories where weird and (sometimes, initially) wonderful plants drive the plot (no pun intended).
 
 The stories cover a great deal of ground (I'm not doing this on purpose, I swear!) and, in my opinion, can be broadly sorted into four categories:
 
