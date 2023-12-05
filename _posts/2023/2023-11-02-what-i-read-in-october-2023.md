@@ -19,7 +19,7 @@ October was a busy month (in a good way!). As well as reading 15 books, I saw si
 
 <cite>Sea of Tranquility</cite>, by Emily St. John Mandel - amazing, devoured it in one sitting. 5*
 
-<cite>Private Inquiries: The Secret History of Female Sleuths</cite>, by Caitlin Davies - review coming soon! 4*
+[<cite>Private Inquiries: The Secret History of Female Sleuths</cite>, by Caitlin Davies](/blog-tour-private-inquiries/) - 4*
 
 ![Stigma, The Rental Heart, The Hollow Sea, Black Rabbit Hall, Bloodchild](/images/october-2023-collage-2.jpg)
 
@@ -43,7 +43,7 @@ October was a busy month (in a good way!). As well as reading 15 books, I saw si
 
 <cite>All About Love</cite>, by bell hooks - all the evergreen gems are already quoted all over the internet. Disappointingly, the rest of the book is outdated, preachy, and dull :( - 2*
 
-<cite>Upstairs at the Beresford</cite>, by Will Carver - review coming soon! 4*
+[<cite>Upstairs at the Beresford</cite>, by Will Carver](/blog-tour-upstairs-at-the-beresford/) - 4*
 
 ## Looking ahead...
 
