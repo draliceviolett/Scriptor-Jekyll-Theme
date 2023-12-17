@@ -39,7 +39,7 @@ But first: it's [Emotional Madness](https://www.colchesterartscentre.com/events/
 
 [<cite>Yule Island</cite>, by Johana Gustawsson](/blog-tour-yule-island/) - 4*
 
-<cite>Let Them Float</cite>, by Katy Wimhurst - review coming soon! 5*
+[<cite>Let Them Float</cite>, by Katy Wimhurst](/blog-tour-let-them-float/) - 5*
 
 ## Looking ahead...
 
