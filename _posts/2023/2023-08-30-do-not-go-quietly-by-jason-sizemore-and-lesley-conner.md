@@ -14,7 +14,7 @@ featured-image: /images/do-not-go-quietly.jpg
 
 > 'From small acts of defiance to protests that shut down cities, <cite>Do Not Go Quietly</cite> is an anthology of science fiction and fantasy short stories about those who resist.
 
-> 'Within this anthology, we will chronicle the fight for what is just and right, and what that means: from leading revolutions to the simple act of saying “No.”
+> 'Within this anthology, we will chronicle the fight for what is just and right, and what that means: from leading revolutions to the simple act of saying “No.”'
 
 <img src="/images/do-not-go-quietly-200.jpg" alt="Do Not Go Quietly" style="float: right; margin-bottom: 10px; margin-left: 10px;">
 
