@@ -25,9 +25,9 @@ My weird speculative/sci-fi/non-fiction short story went down really well with t
 
 <cite>Boys in the Valley</cite>, by Philip Fracassi - 4*
 
-[<cite>Resurrections</cite>, by Ada Hoffmann](/resurrections-by-ada-hoffmann/) - 4.5*
+[<cite>Resurrections</cite>, by Ada Hoffmann](/resurrections-by-ada-hoffman/) - 4.5*
 
-<cite>The Outside</cite>, by Ada Hoffman - yes, I did like my previous read so much that I immediately had to read something else by the same author. 4*
+<cite>The Outside</cite>, by Ada Hoffmann - yes, I did like my previous read so much that I immediately had to read something else by the same author. 4*
 
 <cite>The Scrapbook</cite>, by Carly Holmes - 4.5* 
 
@@ -59,7 +59,7 @@ Starting as I mean to go on, I've already finished a 5* book in 2024, by which I
 
 The blog tour machine is warming back up, and <cite>Strong Female Character</cite>, by Fern Brady, is something I'm particularly looking forward to reading and reviewing.
 
-I'm planning to continue my exploration of the back catalogues of Carly Holmes and Ada Hoffman, with <cite>Figurehead</cite> and <cite>The Infinite</cite>, respectively.
+I'm planning to continue my exploration of the back catalogues of Carly Holmes and Ada Hoffmann, with <cite>Figurehead</cite> and <cite>The Infinite</cite>, respectively.
 
 I'm also excited to read <cite>A Stroke of the Pen</cite>, by Terry Pratchett, and <cite>Night Side of the River: Ghost Stories</cite>, by Jeanette Winterson &mdash; another couple of spoils from my sales haul.
 
