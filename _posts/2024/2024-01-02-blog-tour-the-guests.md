@@ -1,7 +1,7 @@
 ---
 date: 2024-01-02
 layout: post
-title: "Blog tour: The Guests by Agnes Ratavn, translated by Rosie Hedger"
+title: "Blog tour: The Guests by Agnes Ravatn, translated by Rosie Hedger"
 excerpt: "<cite>The Guests</cite> is an entertaining yet deep, sharply-observed comedy of manners."
 featured-image: /images/the-guests.jpg
 ---
@@ -19,7 +19,7 @@ reminder of everything lacking in their own lives, and in a less-than-friendly m
 
 <img src="/images/the-guests-200.jpg" alt="The Guests" style="float: right; margin-bottom: 10px; margin-left: 10px;">
 
-In <cite>The Guests</cite>, by Agnes Ratavn, middle-aged, lower middle-class Karin and Kai find themselves spending a week in a high spec holiday cabin in the Norwegian fjords.
+In <cite>The Guests</cite>, by Agnes Ravatn, middle-aged, lower middle-class Karin and Kai find themselves spending a week in a high spec holiday cabin in the Norwegian fjords.
 
 The cabin belongs to Iris, Karin's glamorous old school nemesis, who insists they borrow it &mdash; on the condition that joiner Kai builds her a new jetty &mdash; after Karin does her a good turn in spite of herself.
 
@@ -31,7 +31,7 @@ I found <cite>The Guests</cite> a quick, entertaining read. Largely set in and a
 
 While the interactions between the characters, Karin's fabrications, and the hole she consequently digs for herself and Kai are funny and suggest the story is farcical in nature, there's a lot going on in terms of character depth and development, especially when it comes to the narrator.
 
-Ratavn recognises that people can hold a number of seemingly contradictory opinions, and vacillate between them from minute to minute. Accordingly, it's very realistic that Karin displays both envy of, and contempt for, people who have "better" lives than her, and is sometimes able to acknowledge that what she has is good enough, and even suits her.
+Ravatn recognises that people can hold a number of seemingly contradictory opinions, and vacillate between them from minute to minute. Accordingly, it's very realistic that Karin displays both envy of, and contempt for, people who have "better" lives than her, and is sometimes able to acknowledge that what she has is good enough, and even suits her.
 
 While Karin's resentment, paranoia, and obsessive hate of a woman she's barely seen in 25 years can occasionally make her a bit annoying and dislikeable &mdash; there were times when I just wanted to grab her by the shoulders and tell her to chill out! &mdash; I couldn't bring myself to judge her that harshly.
 
