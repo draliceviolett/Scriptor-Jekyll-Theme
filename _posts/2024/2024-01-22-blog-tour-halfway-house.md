@@ -1,7 +1,7 @@
 ---
 date: 2024-01-22
 layout: post
-title: "Blog tour: Halfway House by Helen Fitzgerald"
+title: "Blog tour: Halfway House by Helen FitzGerald"
 excerpt: "<cite>Halfway House</cite> is an entertaining, engrossing thriller that's full of colourful characters."
 featured-image: /images/halfway-house.jpg
 ---
@@ -14,7 +14,7 @@ featured-image: /images/halfway-house.jpg
 
 > 'Two killers, a celebrity paedophile and a paranoid coke dealer – all out on parole and all sharing their outwardly elegant Edinburgh townhouse with rookie night-worker Lou...
 
-> 'And instead of finding some meaning and purpose to her life, she finds herself trapped in a terrifying game of cat and mouse where she stands to lose everything – including her life.
+> 'And instead of finding some meaning and purpose to her life, she finds herself trapped in a terrifying game of cat and mouse where she stands to lose everything – including her life.'
 
 <img src="/images/halfway-house-200.jpg" alt="Halfway House" style="float: right; margin-bottom: 10px; margin-left: 10px;">
 
