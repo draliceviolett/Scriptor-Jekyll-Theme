@@ -41,7 +41,7 @@ Not much happened writing-wise beyond some rough scratchings at writing sessions
 
 <cite>Out There Screaming: An Anthology of New Black Horror</cite>, edited by Jordan Peele - 4*
 
-<cite>Bodies</cite>, by Ian Winwood - 4*
+<cite>Bodies: Life and Death in Music</cite>, by Ian Winwood - 4*
 
 <cite>Death Flight</cite>, by Sarah Sultoon - review coming soon! 4*
 
