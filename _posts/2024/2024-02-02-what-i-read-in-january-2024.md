@@ -29,7 +29,7 @@ Not much happened writing-wise beyond some rough scratchings at writing sessions
 
 <cite>A Stroke of the Pen</cite> by Terry Pratchett - it's... fine. 3.5*
 
-<cite>Plague Birds</cite>, by Jason Sanford - review coming soon! 4*
+[<cite>Plague Birds</cite>, by Jason Sanford](/plague-birds-by-jason-sanford/) - 4*
 
 <cite>The Half Life of Valery K</cite>, by Natasha Pulley - brilliant. 5*
 
@@ -43,7 +43,7 @@ Not much happened writing-wise beyond some rough scratchings at writing sessions
 
 <cite>Bodies: Life and Death in Music</cite>, by Ian Winwood - 4*
 
-<cite>Death Flight</cite>, by Sarah Sultoon - review coming soon! 4*
+[<cite>Death Flight</cite>, by Sarah Sultoon](/blog-tour-death-flight/) 4*
 
 <cite>The Fallen</cite>, by Ada Hoffmann - 4.5*
 
