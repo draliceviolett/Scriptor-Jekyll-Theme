@@ -11,7 +11,7 @@ At least February went a bit quicker than January did, even with the extra day. 
 
 ![Mother Death, Old Babes in the Wood, The Good Neighbours, The Beautiful Visit, The Sleeping Beauties](/images/february-2024-collage-1.jpg)
 
-<cite>Mother Death</cite>, by Paul O'Neill - review coming soon! 4*
+[<cite>Mother Death</cite>, by Paul O'Neill](/mother-death-by-paul-oneill/) - 4*
 
 <cite>Old Babes in the Wood</cite>, by Margaret Atwood - 4*
 
