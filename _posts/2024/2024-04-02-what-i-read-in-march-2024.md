@@ -33,13 +33,13 @@ It felt like I leaned more towards long books, and sci-fi (and long sci-fi books
 
 <cite>Clay's Ark</cite>, by Octavia E. Butler - very rare for me to read two books by the same author back-to-back! 4*
 
-<cite>The Grand Illusion</cite>, by Syd Moore - review coming soon! 4.5*
+[<cite>The Grand Illusion</cite>, by Syd Moore](/blog-tour-the-grand-illusion/) - 4.5*
 
 ![The Mars House, Girl Unmasked, The Hunter, The Left Hand of Dog](/images/march-2024-collage-3.jpg)
 
 <cite>The Mars House</cite>, by Natasha Pulley - amazing. I love Pulley's writing so much. 5*
 
-<cite>Girl Unmasked</cite>, by Emily Katy - review coming soon! 5*
+[<cite>Girl Unmasked</cite>, by Emily Katy](/blog-tour-girl-unmasked/) - 5*
 
 <cite>The Hunter</cite>, by Tana French - 4.5*
 

@@ -41,7 +41,7 @@ I particularly liked spending time with Nora, a quirky elderly curmudgeon who no
 
 I found Khadija the most multi-layered, fascinating and "real" character, though. She's breathtakingly outspoken, yet she feels like she has to set herself on fire to keep other people warm. She doesn't feel completely welcome or at ease in Saltash, yet she cares about and defends it, and feels compelled to live there. Her known family has always met her needs, but she's recently become curious about her father.
 
-Other things that I appreciated about Khadija: she loves a bit of digging and detective work. She's been on the sharp end of that hopefully-dying attitude that if a man is really into you but you're not feeling it, it's your responsibility and why can't you just give him a chance? She's somewhere on the asexual spectrum, and (coming back to the "different types of love" thing) great representation to boot.
+Other things that endeared me to Khadija: she loves a bit of digging and detective work. She's been on the sharp end of that hopefully-dying attitude that if a man is really into you but you're not feeling it, it's your responsibility and why can't you just give him a chance? She's somewhere on the asexual spectrum, and (coming back to the "different types of love" thing) great representation to boot.
 
 <cite>Fall River</cite> is rich, evocative, and memorable.
 
