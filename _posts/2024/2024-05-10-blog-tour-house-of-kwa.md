@@ -34,7 +34,7 @@ Kwa laughs with you at Francis' hare-brained schemes and ridiculous behaviour, b
 
 Francis' neglect and insensitivity, and the distress Kwa's mother, Mela (the couple have a rocky marriage, and divorce after a few years) causes to her young child by dint of a serious, untreated mental illness, would suggest that Kwa is a prime candidate for complex PTSD.
 
-However, as she explains in the epilogue, it wasn't until she sat down to write this book &ndash; which gave her the time and space to really think about things &ndash; that she realised the true extent of the wrongs committed against her as a child. She was therefore in middle age when the emotional consequences caught up with her, which isn't uncommon.
+However, as she explains in the epilogue, it wasn't until she sat down to write this book &ndash; which gave her the time and space to really think about things &ndash; just how much she saw and experienced that no child should. She was therefore in middle age when the emotional consequences caught up with her, which isn't uncommon.
 
 Kwa also refers to factors that mitigated her less-than-ideal upbringing: the self-belief instilled in her as a member of the Kwa line born in the Year of the Tiger, and the love, comfort and stability she could rely on from her maternal grandparents and Aunty Theresa.
 
