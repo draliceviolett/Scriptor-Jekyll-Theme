@@ -35,7 +35,7 @@ April was just another month. I didn't do any creative writing of value (my brai
 
 <cite>Hell Bent</cite>, by Leigh Bardugo - brilliant, even if I did have to keep looking up characters and events because I read <cite>Ninth House</cite> in 2019! 5*
 
-<cite>House of Kwa</cite>, by Mimi Kwa - review coming soon! 4.5*
+[<cite>House of Kwa</cite>, by Mimi Kwa](/blog-tour-house-of-kwa/) - 4.5*
 
 <cite>Patternmaster</cite>, by Octavia Butler - 4*
 
