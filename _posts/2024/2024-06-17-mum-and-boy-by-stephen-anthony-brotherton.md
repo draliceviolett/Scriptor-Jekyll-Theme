@@ -1,5 +1,5 @@
 ---
-date: 2024-06-16
+date: 2024-06-17
 layout: post
 title: "Review: Mum and Boy by Stephen Anthony Brotherton"
 excerpt: "<cite>Mum and Boy</cite> is powerful and harrowing."
