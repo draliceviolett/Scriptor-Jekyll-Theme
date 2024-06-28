@@ -26,7 +26,7 @@ Maddy soon learns that her new client is commanding and exacting: Angela knows p
 
 A more positive development for Maddy is a promising romantic relationship with Angela's business partner, Scott. However, this ends in tragedy not long after she gets back home to London.
 
-Events take an even stranger turn some months later, when Maddy spots a man who looks so uncannily like Scott, she can't get him out of her mind. The pair end up dating, but Finn's supposedly dead doppelganger makes for a spectral third wheel.
+Events take an even stranger turn some months later, when Maddy spots a man who looks so uncannily like Scott, she can't get him out of her mind. The pair end up dating, but Connor's supposedly dead doppelganger makes for a spectral third wheel.
 
 <cite>Eye of the Beholder</cite> totally gripped me, so much so that I stayed up well past my bedtime to finish the last few dozen pages. There were just so many things that captured my attention and held my interest.
 
@@ -40,7 +40,7 @@ I additionally appreciated the glimpse offered by this novel into the world of c
 
 Both Angela and Maddy are interesting characters, the former because she's so steely and enigmatic, and the latter &ndash; on top of having a cool job &ndash; because of the way she unravels in the second act.
 
-While Maddy is ultimately very much right to question the events surrounding Scott's death, the way she pursues Finn, and tries to turn him into Scott in terms of his hair and clothes, is unsettling to say the least &ndash; and in keeping with the events of Alfred Hitchcock's <cite>Vertigo</cite>, to which this story is a tribute.
+While Maddy is ultimately very much right to question the events surrounding Scott's death, the way she pursues Connor, and tries to turn him into Scott in terms of his hair and clothes, is unsettling to say the least &ndash; and in keeping with the events of Alfred Hitchcock's <cite>Vertigo</cite>, to which this story is a tribute.
 
 <cite>Eye of the Beholder</cite> is compulsive, fascinating, and mind-bending.
 
