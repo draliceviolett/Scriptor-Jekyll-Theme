@@ -33,7 +33,7 @@ Still, if this creative writing thing totally goes down the pan, maybe I can mak
 
 <cite>The Left-Handed Booksellers of London</cite>, by Garth Nix - 3.5*
 
-<cite>Boys Who Hurt</cite>, by Eva Björg Ægisdóttir, translated by Victoria Cribb - review coming soon! 4*
+[<cite>Boys Who Hurt</cite>, by Eva Björg Ægisdóttir, translated by Victoria Cribb](/blog-tour-boys-who-hurt/) - 4*
 
 ![Broken Light, The Bird's Nest, Mum and Boy](/images/may-2024-collage-3.jpg)
 
@@ -41,7 +41,7 @@ Still, if this creative writing thing totally goes down the pan, maybe I can mak
 
 <cite>The Bird's Nest</cite>, by Shirley Jacksosn - 5*
 
-<cite>Mum and Boy</cite>, by Stephen Anthony Brotherton - review coming soon! 4*
+[<cite>Mum and Boy</cite>, by Stephen Anthony Brotherton](/mum-and-boy-by-stephen-anthony-brotherton/) - 4*
 
 ## Looking ahead...
 
