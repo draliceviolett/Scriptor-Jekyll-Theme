@@ -32,7 +32,7 @@ I do like a coming-of-age novel, and <cite>One Grand Summer</cite> is no excepti
 
 I was taken right back to the feelings of promise at the start (never quite fulfilled in my case &ndash; maybe that's why I get so much pleasure from living vicariously through coming-of-age protagonists?), and sweet melancholy at the end of the school summer holidays.
 
-Frieder may have fallen short academically, but he is by no means dull or lacking in intelligence. His narrative voice is lively and entertaining, and his descriptions of the world around him are keen, observant, and sometimes quirky, with a particular focus on trees and birds.
+Frieder may have fallen short academically, but he is by no means dull or lacking in intelligence. His narrative voice is lively and entertaining, and his descriptions of the world around him are keen, observant, and often humorous, with a particular focus on trees and birds.
 
 He also shows curiosity about all sorts of things throughout the book, including his grandparents' earlier lives, diagnostic procedures at the hospital where his step-grandfather works (and where Frieder gets a part-time job running errands), and other people's experiences and perspectives.
 

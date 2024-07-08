@@ -35,7 +35,7 @@ Once again, I have been busy doing everything (cinema, theatre, writing blogs, r
 
 ![True Love, Promising Young Women, The Japanese Lover](/images/june-2024-collage-3.jpg)
 
-<cite>True Love</cite>, by Paddy Crewe - wonderful. Review coming soon! 5*
+[<cite>True Love</cite>, by Paddy Crewe](/blog-tour-true-love/) - wonderful. 5*
 
 <cite>Promising Young Women</cite>, by Caroline O'Donoghue - 4*
 
