@@ -19,7 +19,7 @@ Once again, I have been busy doing everything (cinema, theatre, writing blogs, r
 
 <cite>A Curious Cartography</cite>, by Alison Littlewood - 4*
 
-[<cite>Cinderwich</cite>, by Cherie Priest](/blog-tour-cinderwich/) - 4*
+[<cite>Cinderwich</cite>, by Cherie Priest](/cinderwich-by-cherie-priest/) - 4*
 
 ![Piranesi, everything is under control., The Betrayal of Thomas True, Eye of the Beholder, The Glass Hotel](/images/june-2024-collage-2.jpg)
 
