@@ -10,8 +10,7 @@ featured-image: /images/the-women-of-biafra.jpg
 
 **This post is part of a blog tour organised by [Random Things Blog Tours](http://randomthingsthroughmyletterbox.blogspot.com/p/services-to-publishers-authors-blog.html). I received a free copy of the book in return for an honest review.**
 
-> '<cite>The Women of Biafra</cite> is set in 1967 during the tragic genocide against the
-Biafrans by Nigerian soldiers.
+> '<cite>The Women of Biafra</cite> is set in 1967 during the tragic genocide against the Biafrans by Nigerian soldiers.
 
 > 'The novel follows the harrowing journey of Ngozika, a young Igbo widow who endures unspeakable trauma at the hands of a Fulani man.
 
