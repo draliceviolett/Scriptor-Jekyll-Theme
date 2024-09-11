@@ -5,34 +5,38 @@ permalink: /fringe-schedule/
 hide_from_search: yes
 ---
 
-## Wednesday 18 October 2023
+**[Buy a 6-for-5 Festival Pass](https://colchester.ssboxoffice.com/merch/fringe-festival-pass/)**
 
-<cite>QueerMania; Nightmare of Dreams</cite>, 7pm, Three Wise Monkeys (**NB on top floor**)
+## Friday 25 October 2024
 
-[https://www.colchesterfringe.com/queermania-nightmareofdreams](https://www.colchesterfringe.com/queermania-nightmareofdreams)
+<cite>4:48 Psychosis</cite>, 7pm, Headgate Theatre (Main)
 
-## Thursday 19 October 2023
+[https://colchester.ssboxoffice.com/events/448-psychosis/](https://colchester.ssboxoffice.com/events/448-psychosis/)
 
-<cite>Standing on a Nail: A Queer Horror Story</cite>, 8:30pm, Colchester Arts Centre
+<cite>My BF Wouldn’t Buy A Stupid Window (Why I Did and Don’t Regret It)</cite>, 8.30pm, Patch
 
-[https://www.colchesterfringe.com/standingonanail-aqueerhorrorstory](https://www.colchesterfringe.com/standingonanail-aqueerhorrorstory)
+[https://colchester.ssboxoffice.com/events/my-bf-wouldnt-buy-a-stupid-window-why-i-did-and-dont-regret-it/](https://colchester.ssboxoffice.com/events/my-bf-wouldnt-buy-a-stupid-window-why-i-did-and-dont-regret-it/)
 
-## Saturday 21 October 2023
+## Monday 28 October 2024
 
-<cite>Princess Amnesia</cite>, 5.30pm, Headgate Theatre
+<cite>Ghost Stories of an Antiquary</cite>, 8.30pm, Headgate Theatre (Rehearsal Room)
 
-[https://www.colchesterfringe.com/princessamnesia](https://www.colchesterfringe.com/princessamnesia)
+[https://colchester.ssboxoffice.com/events/ghost-stories-of-an-antiquary/](https://colchester.ssboxoffice.com/events/ghost-stories-of-an-antiquary/)
 
-<cite>Dirty</cite>, 8:30pm, Mercury Theatre (Studio) (**NB I'm in seat B11**)
+## Friday 1 November 2024
 
-[https://www.colchesterfringe.com/dirty](https://www.colchesterfringe.com/dirty)
+<cite>The Bruise You Can't See</cite>, 7pm, Firstsite (Studio)
 
-## Sunday 22 October 2023
+[https://colchester.ssboxoffice.com/events/the-bruise-you-cant-see/](https://colchester.ssboxoffice.com/events/the-bruise-you-cant-see/)
 
-<cite>Para-Sights</cite>, 6pm, Three Wise Monkeys (**NB on top floor**)
+## Saturday 2 November 2024
 
-[https://www.colchesterfringe.com/para-sights](https://www.colchesterfringe.com/para-sights)
+<cite>Cereal For Dinner</cite>, 8.30pm, Three Wise Monkeys (top floor)
 
-<cite>Blink: A one-man gay rom-com</cite>, 7:30pm, Three Wise Monkeys (**NB on top floor**)
+[https://colchester.ssboxoffice.com/events/chris-young-cereal-for-dinner/](https://colchester.ssboxoffice.com/events/chris-young-cereal-for-dinner/)
 
-[https://www.colchesterfringe.com/blink](https://www.colchesterfringe.com/blink)
+## Sunday 3 November 2024
+
+<cite>In the Back of Your Mind</cite>, 3pm, Headgate Theatre (Rehearsal Room)
+
+[https://colchester.ssboxoffice.com/events/in-the-back-of-your-mind/](https://colchester.ssboxoffice.com/events/in-the-back-of-your-mind/)
