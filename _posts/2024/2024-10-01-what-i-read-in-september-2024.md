@@ -29,13 +29,13 @@ I still don't feel like writing much fiction, but after a couple of weeks withou
 
 <cite>The Birds and other stories</cite>, by Daphne Du Maurier - 5*
 
-<cite>Arden</cite>, by GD Harper - review coming soon! 4*
+[<cite>Arden</cite>, by GD Harper](/arden-by-gd-harper/) - 4*
 
 ![Not the End of the World, Ghost Story, To Be Taught, If Fortunate, Ace](/images/september-2024-collage-3.jpg)
 
 <cite>Not the End of the World</cite>, by Kate Atkinson - 5*
 
-<cite>Ghost Story</cite>, by Elisa Lodato - review coming soon! 4*
+[<cite>Ghost Story</cite>, by Elisa Lodato](/blog-tour-ghost-story/) - 4*
 
 <cite>To Be Taught, If Fortunate</cite>, by Becky Chambers - my first Becky Chambers book, and I found it stunning. 5*
 
