@@ -41,7 +41,7 @@ There's also the feeling she's living a half-life following her catastrophic los
 
 Staying in Castlebay the night before the boat crossing, Seren's further unsettled by a couple of out-of-the-ordinary things she sees and hears. By the time she actually gets to Finish, we're well-primed for spooky goings-on.
 
-These phenomena are very skilfully woven into the story. Lodato doesn't overplay her hand: incidents are few and far between (there are stretches where you almost forget about them, and find yourself enjoying an uplifting story about a woman rebuilding her life by living off the land for a spell), Seren rationalises them when she's the only witness, and when there's someone else present, their corroboration helps you suspend your disbelief.
+These phenomena are very skilfully woven into the story. Lodato doesn't overplay her hand: incidents are few and far between (there are stretches where you almost forget about them, and find yourself enjoying an uplifting story about a woman rebuilding her life by living off-grid for a spell), Seren rationalises them when she's the only witness, and when there's someone else present, their corroboration helps you suspend your disbelief.
 
 The history the author creates for Finish by blending imagination with mixed-and-matched stories of real Outer Hebridean islands enriches the phenomena with weight and meaning. As well as the islanders' (pragmatic) abandonment of the island in 1912, Seren learns of a brutal massacre committed against the island's men, women and children hundreds of years earlier, and the reverence the residents had for their midwife &ndash; particularly the woman who held this role at the time of the massacre, and was given the posthumous name of Chulainn ("warrior"). 
 
