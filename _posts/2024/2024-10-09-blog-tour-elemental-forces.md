@@ -38,9 +38,9 @@ In Henry's contribution, a demon terrorises a fast food joint, getting into the 
 
 Verrone's story takes the form of a review of an innovative new musical theatre production &ndash; think <cite>Edward Scissorhands</cite>, but with a friendly (and very much real) slime winning over an intolerant suburb. However, the slime turns out to be more than just a triple threat performer, and the show descends into real-life horror for cast and audience alike. Even so, the tough critic retains their cynical, detached lens right up to the page before last.
 
-Before I close this review, something that did bother me in a couple of places in this collection (not in the stories mentioned above) was the idea that it's over-population/humanity as a whole wrecking the planet.
+Before I close this review, something that did bother me in a couple of places in this collection (not in the stories mentioned above) was the idea that over-population is particularly to blame for wrecking the planet.
 
-In reality, it's a minority of very rich, powerful humans who are (directly or indirectly) doing the majority of the damage, and at the other end of the scale, there are indigenous groups with strong traditions of with respect for the environment.
+While many of us can &ndash; and ought to &ndash; do our bit to be more green, there's a huge imbalance. A tiny number of very rich people are causing by far the most environmental (and social) damage, directly and indirectly. At the other end of the scale, there are indigenous groups with strong traditions of with respect for nature.
 
 You also have to be so careful when talking about "over-population" as it can so easily tip over into eugenics, with questions about precisely who should be prevented from having children and how, and exactly which people should be kept alive or left to die.
 
