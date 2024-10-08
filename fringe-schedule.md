@@ -39,4 +39,4 @@ hide_from_search: yes
 
 <cite>A Year and a Day</cite>, 4.30pm, Headgate Theatre (Rehearsal Room)
 
-[https://colchester.ssboxoffice.com/events/in-the-back-of-your-mind/](https://colchester.ssboxoffice.com/events/a-year-and-a-day/)
+[https://colchester.ssboxoffice.com/events/a-year-and-a-day/](https://colchester.ssboxoffice.com/events/a-year-and-a-day/)
