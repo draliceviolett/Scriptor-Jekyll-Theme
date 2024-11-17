@@ -5,8 +5,6 @@ permalink: /all-the-links/
 ---
 
 <ul class="remove-markers">
-
-   <li><a href="/blog-tour-yule-island/" class="basic-button">Blog tour: Yule Island by Johana Gustawsson, translated by David Warriner</a></li>
   <li>{% for post in site.posts limit:1 %}
     <a href="{{ post.url }}" class="basic-button">{{ post.title }}</a>
   {% endfor %}</li>
