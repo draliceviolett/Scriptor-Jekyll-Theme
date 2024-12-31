@@ -22,7 +22,7 @@ featured-image: /images/victim.jpg
 
 > 'And someone is watching...'
 
-<img src="/images/victim-200.jpg" alt="Stigma" style="float: right; margin-bottom: 10px; margin-left: 10px;">
+<img src="/images/victim-200.jpg" alt="Victim" style="float: right; margin-bottom: 10px; margin-left: 10px;">
 
 <cite>Victim</cite>, by Jørn Lier Horst and Thomas Enger, picks up shortly after the events of [<cite>Stigma</cite>](/blog-tour-stigma/). Alexander Blix is back home, having had his conviction quashed, but there's no chance of him returning to his career as a police detective.
 
