@@ -1,5 +1,5 @@
 ---
-date: 2025-01-27
+date: 2025-02-05
 layout: post
 title: "Blog tour: In Judgement of Others by Eleanor Anstruther"
 excerpt: "<cite>In Judgement of Others</cite> is entertaining and thought-provoking."
@@ -41,3 +41,5 @@ Furthermore, when one of Tessa's fellow inpatients finds a copy of the script in
 This gives us the opportunity to learn about some of the other characters on the ward, and reminds us that their being sectioned is only one part of their lives &ndash; they're capable people with individual strengths and passions, who just happen to be laid low by something beyond their control for a period of time. What's more, they're at the mercy of an overstretched system that's forced by necessity to take a cookie-cutter approach to a range of severe mental health difficulties.
 
 <cite>In Judgement of Others</cite> is entertaining and thought-provoking.
+
+![In Judgement of Others blog tour banner](/images/in-judgement-of-others-banner.jpg)

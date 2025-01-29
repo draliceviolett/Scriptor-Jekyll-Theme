@@ -45,3 +45,5 @@ Clara is a compelling fairy tale-esque villain &ndash; I could practically feel 
 We learn about Clara's childhood &ndash; unlike the girls' father, she was the child of an ill-starred marriage and grew up impoverished and neglected &ndash; and while this gives depth to her character and explains some things about her, your sympathy for her remains limited because those things don't *determine* your behaviour as an adult. Either there was something not-quite-right about Clara from the start, or she actively *chose* a path of bitterness and greed.
 
 <cite>At the Bottom of the Garden</cite> is enjoyably creepy and surprisingly heartwarming.
+
+![At the Bottom of the Garden blog tour banner](/images/at-the-bottom-of-the-garden-banner.jpg)
