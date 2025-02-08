@@ -35,7 +35,7 @@ Anyway, books.
 
 <cite>The Ten Thousand Doors of January</cite>, by Alix E. Harrow - wonderful. 5*
 
-<cite>In Judgement of Others</cite>, by Eleanor Anstruther - review coming soon! 4*
+[<cite>In Judgement of Others</cite>, by Eleanor Anstruther](/blog-tour-in-judgement-of-others/) - 4*
 
 <cite>That Bonesetter Woman</cite>, by Frances Quinn - marvellous. 5*
 
@@ -43,7 +43,7 @@ Anyway, books.
 
 <cite>The Rat-Catcher's Daughter</cite>, by K.J. Charles - short and sweet. 4*
 
-<cite>The Garden</cite>, by Nick Newman - review coming soon! 4.5*
+[<cite>The Garden</cite>, by Nick Newman](/blog-tour-the-garden/) - 4.5*
 
 <cite>The Autistic Brain</cite>, by Temple Grandin and Richard Panek - interesting stuff, but too much generalisation, and don't get me started on the whole 'young autistics these days are work-shy and should mask their traits to get and keep jobs, as that's the only way to contribute to society' thing. 3*
 
