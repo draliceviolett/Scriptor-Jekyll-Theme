@@ -22,7 +22,7 @@ featured-image: /images/an-orchid-in-my-belly-button.jpg
 
 > 'Surreal, absurdist, magical realist; Katy Wimhurst writes speculative fiction that meditates on our reality. Although bleak themes are examined &ndash; dystopian futures, the climate crisis, bullying &ndash; a quirky imagination and wry humour lift the tales above the 'realm of grim'.'
 
-<img src="/images/an-orchid-my-belly-button-200.jpg" alt="An Orchid in my Belly Button" style="float: right; margin-bottom: 10px; margin-left: 10px;">
+<img src="/images/an-orchid-in-my-belly-button-200.jpg" alt="An Orchid in my Belly Button" style="float: right; margin-bottom: 10px; margin-left: 10px;">
 
 Usual disclaimer: I know the author a little from my writing group.
 
