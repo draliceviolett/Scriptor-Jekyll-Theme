@@ -46,4 +46,4 @@ Similarly, there are insinuations throughout the story of liaisons between artis
 
 <cite>Madame Matisse</cite> is gripping, fascinating, and thought-provoking.
 
-![Madame Matisse blog tour banner](/images/cold-grace-banner.jpg)
+![Madame Matisse blog tour banner](/images/madame-matisse-banner.jpg)
