@@ -6,6 +6,8 @@ excerpt: "<cite>Welcome to Ferrendale</cite> is a delightfully sinister and intr
 featured-image: /images/welcome-to-ferrendale.jpg
 ---
 
+![Welcome to Ferrendale](/images/welcome-to-ferrendale.jpg)
+
 **I received a free copy of this book from the author in return for an honest review.**
 
 > 'A fortunate crash allows three criminals to make their escape into the nearby woods. They consist of: Taggart, a man with big ambitions and an ego to match; Frank, an old career criminal interested in dark knowledge; and Simon, a meek fraudster convicted of manslaughter.
