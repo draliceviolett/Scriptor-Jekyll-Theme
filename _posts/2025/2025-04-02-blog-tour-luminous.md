@@ -48,7 +48,7 @@ Thus, the robot Ruijie finds in the scrapyard (and I don't think this is a spoil
 
 Ruijie's story, meanwhile, explores what it's like to grow up at a time when robots are the norm, and you've never known any different. Intellectually, she knows the robots she encounters, including Yoyo, the missing Eli, and the rabbits kept by her school aren't "real", yet she still feels a great deal of empathy for them.
 
-What's more, Ruijie's involvement with Yoyo helps her develop friendships with three of her human classmates, through whom we gain further insight into what a reunited Korea might look like, and the problems that could remain. It also helps her come to terms with her own bleak prognosis.
+What's more, Ruijie's involvement with Yoyo helps her develop friendships with three of her human classmates, through whom we gain further insight into what a reunified and open Korea might look like, and the problems that could remain. It also helps her come to terms with her own bleak prognosis.
 
 <cite>Luminous</cite> is enthralling, multi-layered, and thought-provoking.
 
