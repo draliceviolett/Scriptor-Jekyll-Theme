@@ -29,7 +29,7 @@ I actually completed a short story based on what I came up with on my day out on
 
 <cite>Hot Singles in Your Area</cite>, by Jordan Shiveley - 3.5*
 
-<cite>Son</cite>, by Johana Gustawsson and Thomas Enger - review coming soon!
+[<cite>Son</cite>, by Johana Gustawsson and Thomas Enger](/blog-tour-son/) - 4*
 
 ![Ainlay vs Infernal Support, Dare vs the Doll, The Mune, Only the Living Feel Remorse](/images/february-2025-collage-3.jpg)
 
@@ -37,7 +37,7 @@ I actually completed a short story based on what I came up with on my day out on
 
 <cite>Dare vs the Doll</cite>, by SI Clarke - 3.5*
 
-<cite>The Mune</cite>, by Sue Dawes - review coming soon! 5*
+[<cite>The Mune</cite>, by Sue Dawes](/the-mune-by-sue-dawes/) - 5*
 
 <cite>Only the Living Feel Remose</cite>, by Ash Deza - 4*
 
