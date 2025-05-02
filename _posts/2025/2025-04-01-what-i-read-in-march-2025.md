@@ -37,7 +37,7 @@ March was good to me. As well as reading 12 books, I stayed with a couple of old
 
 <cite>Familiar and Flame</cite>, by Veo Corva - 4*
 
-<cite>Luminous</cite>, by Silvia Park - review coming soon! 4.5*
+[<cite>Luminous</cite>, by Silvia Park](/blog-tour-luminous/) - 4.5*
 
 ## Looking ahead...
 
