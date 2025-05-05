@@ -2,7 +2,7 @@
 date: 2025-05-06
 layout: post
 title: "Review: We Who Hunt Alexanders by Jason Sanford"
-excerpt: "<cite>We Who Hunt Alexanders</cite> is an imaginative, thrilling, and surprisingly touching coming-of-age horror novella."
+excerpt: "<cite>We Who Hunt Alexanders</cite> is an imaginative, suspenseful, and surprisingly touching coming-of-age horror novella."
 featured-image: /images/we-who-hunt-alexanders.jpg
 ---
 
@@ -34,6 +34,6 @@ More than anything, though, this is a coming-of-age story. At the beginning, Ame
 
 As suggested previously, though, Amelia doesn't find it easy to get Ziee on her side &ndash; in fact, rippers being extremely territorial, Ziee initially nearly kills Amelia when she happens to visit the building where Ziee lives.
 
-Between rippers' adversarial relationships with one another, and the risks they have to take to keep themselves fed, there's a lot of suspense and danger to keep you turning the pages, culminating in a dramatic and gory finale.
+Between rippers' adversarial relationships with one another, and the risks they have to take to keep themselves fed, there's a lot of tension and danger to keep you turning the pages, culminating in a dramatic and gory finale.
 
-<cite>We Who Hunt Alexanders</cite> is an imaginative, thrilling, and surprisingly touching coming-of-age horror novella.
+<cite>We Who Hunt Alexanders</cite> is an imaginative, suspenseful, and surprisingly touching coming-of-age horror novella.
