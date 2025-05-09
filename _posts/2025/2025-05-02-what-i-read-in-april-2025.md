@@ -41,7 +41,7 @@ This month, I'm off to Orford Ness again, where I'm hoping inspiration for a com
 
 <cite>Non-Player Character</cite>, by Veo Corva - 4*
 
-<cite>We Who Hunt Alexanders</cite>, by Jason Sanford - review coming soon! 4*
+[<cite>We Who Hunt Alexanders</cite>, by Jason Sanford](/we-who-hunt-alexanders-by-jason-sanford/) - 4*
 
 <cite>The Knight and the Butcherbird</cite>, by Alix E. Harrow - reading a novella on the last day of the month to boost my monthly round-up? Couldn't be me. 4*
 
