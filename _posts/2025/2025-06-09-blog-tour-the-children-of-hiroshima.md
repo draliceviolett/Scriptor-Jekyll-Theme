@@ -39,7 +39,7 @@ It's also unavoidable that knowledge and wisdom Okuda gained subsequently would 
 
 Either side of Okuda's narrative are remarks and short essays from relevant scholars, which pay tribute to her as a person and provide some medical and historical/social context for her recollections. These are mainly from the 2008 edition of the book, which this publication reproduces, but it does seem like a bit of a missed opportunity that these haven't been added to/updated for 2025.
 
-Not only do I expect we've learned some more about the long-term health impacts of the Hiroshima bombing in the past 17 years, but it would be interesting to read a sociologist/peace scholar's take on Okuda's story today, considering, for example, Israel's ongoing atrocities against children in Gaza, and that the Doomsday Clock is closer to midnight than it's ever been.
+Not only do I expect we've learned some more about the long-term health impacts of the Hiroshima bombing in the past 17 years, but it would be interesting to read a sociologist/peace scholar's take on Okuda's story today, considering, for example, Israel's targetting of children in Gaza, and that the Doomsday Clock is closer to midnight than it's ever been.
 
 Having been born in 1915, Okuda has almost certainly died by now, yet I can't find any reference to her death online, which is quite surprising considering she was such a remarkable, respected woman. Then again, that might have been what she wanted: having lived an otherwise quiet, ordinary life as a home economics teacher, maybe she intended her contributions to the 2008 edition, at the age of 93, to be her closing remarks, and she didn't want to risk her death overshadowing the premature, brutal ones she witnessed in 1945.
 
