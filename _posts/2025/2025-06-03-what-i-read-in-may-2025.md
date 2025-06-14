@@ -25,7 +25,7 @@ Writing did not end up happening at Orford Ness this time, alas, but I have been
 
 <cite>The Martian</cite>, by Andy Weir - 4*
 
-<cite>The Original Daughter</cite>, by Jemimah Wei - review coming soon! 4.5*
+[<cite>The Original Daughter</cite>, by Jemimah Wei](/blog-tour-the-original-daughter/) - 4.5*
 
 ![Fruit of the Lemon, The Midnight Hour, The Children of Hiroshima, Greenteeth](/images/may-2025-collage-3.jpg)
 
@@ -33,7 +33,7 @@ Writing did not end up happening at Orford Ness this time, alas, but I have been
 
 <cite>The Midnight Hour</cite>, by Eve Chase - 4.5*
 
-<cite>The Children of Hiroshima</cite>, by Sadako Teiko Okuda - review coming soon! 4*
+[<cite>The Children of Hiroshima</cite>, by Sadako Teiko Okuda](/blog-tour-the-children-of-hiroshima/) - 4*
 
 <cite>Greenteeth</cite>, by Molly O'Neill - 4*
 
