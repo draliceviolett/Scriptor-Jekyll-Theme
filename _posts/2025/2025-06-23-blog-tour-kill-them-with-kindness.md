@@ -44,7 +44,7 @@ Paired with Carver's customary jaded musings on the state of humanity and the wo
 
 The author's not wrong in his observations that people like to say 'be kind' or think of themselves as nice without actually *doing* anything, that kindness is sometimes met with suspicion and/or cynicism, and that stories of people being good to one another don't sell newspapers. Furthermore, people vary in their opinions of what the "kind" thing to do is in any given situation, and "nice" and "right" aren't always the same thing (cf. Granny Weatherwax).
 
-The recognisability of the pandemic situation also makes the catastrophic climax of the novel feel less fantastical than it might have done in 2019, or if we hadn't had a pandemic, or if someone with competence and humility had been in charge.
+The recognisability of the pandemic situation also makes the catastrophic climax of the novel feel less fantastical than it might have done in, say, 2016, or if we hadn't had a pandemic, or if someone with competence and humility had been in charge.
 
 Prime Minister Harris Jackson hides a shrewd and ruthless mindset behind a bumbling, disarming persona; gets away with gaffes and rule-breaking time and again with insincere apologies, distractions, and a total absence of shame; and seizes on the pandemic as a money-making opportunity for his cronies.
 
