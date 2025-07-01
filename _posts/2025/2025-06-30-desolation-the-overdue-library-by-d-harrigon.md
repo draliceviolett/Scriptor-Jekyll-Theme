@@ -2,7 +2,7 @@
 date: 2025-06-30
 layout: post
 title: "Review: Desolation: The Overdue Library by D. Harrigon"
-excerpt: "<cite>Desolation: The Overdue Library</cite> is an imaginative and fast-paced start to a new sci-fi trilogy."
+excerpt: "<cite>Desolation: The Overdue Library</cite> is an imaginative and fast-paced start to a new sci-fi series."
 featured-image: /images/desolation-the-overdue-library.jpg
 ---
 
@@ -42,12 +42,12 @@ The author has clearly put a lot of thought into the colony's history and the pl
 
 Refusing to take things at face value, questioning what she's been taught, and digging deep for answers in the library, Hetch is a character after my own heart. I could identify with her particular interest in, and talent for noticing minor details and discrepancies &ndash; and what she eventually turned up in the library made the hairs stand up on the back of my neck. Unlike me, though, she has bravery and presence of mind in abundance, which is a good thing, as she frequently needs them!
 
-I also really liked the friends Hetch made along the way &ndash; two steam engineers who are quirky in their own ways, and an initially very hostile librarian &ndash; and am hoping they'll continue to work together in the second book of the trilogy (which I'll be reviewing next week).
+I also really liked the friends Hetch made along the way &ndash; two steam engineers who are quirky in their own ways, and an initially very hostile librarian &ndash; and am hoping they'll continue to work together in the second book of the series (which I'll be reviewing next week).
 
 While the cast are chiefly women, for the most part, the male author avoids the pitfalls of "men writing women". We get a sense of the characters' personalities first, with their appearance only coming into it when it's relevant to how a scene plays out, or providing further information about a character's priorities and preoccupations. There's fierce rivalry between women in the palace, but a spirit of co-operation and camaraderie elsewhere, not least because it's necessary for survival. Some of the men clearly find the organised fights titillating, but the one the reader sees isn't presented as such.
 
 I did wonder why Hetch's commandeering of Shestia's clothes had to involve total nudity, though this could be a continuity error, considering Hetch is wearing underwear when she sheds a different disguise later on (even so, there might have been a blanket in the well-appointed carriage to cover poor Shestia!).
 
-The book closes with an interlude following one of the men, who's revealed to be pulling some strings and hiding many secrets, and is thoroughly unpleasant to boot. While this gives the reader insights Hetch and co. lack, and affirms that they're the goodies and he's a baddie, his misogynistic (to say the least) opinions, behaviour, and language does mean the first part of the trilogy concludes on rather a sour note. Nonetheless, I'm looking forward to spending more time with the compelling heroes in the next part of the story.
+The book closes with an interlude following one of the men, who's revealed to be pulling some strings and hiding many secrets, and is thoroughly unpleasant to boot. While this gives the reader insights Hetch and co. lack, and affirms that they're the goodies and he's a baddie, his misogynistic (to say the least) opinions, behaviour, and language does mean the first part of the series concludes on rather a sour note. Nonetheless, I'm looking forward to spending more time with the compelling heroes in the next part of the story.
 
-<cite>Desolation: The Overdue Library</cite> is an imaginative and fast-paced start to a new sci-fi trilogy.
+<cite>Desolation: The Overdue Library</cite> is an imaginative and fast-paced start to a new sci-fi series.
