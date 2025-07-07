@@ -5,7 +5,6 @@ permalink: /all-the-links/
 ---
 
 <ul class="remove-markers">
-  <li><a href="/blog-tour-the-betrayal-of-thomas-true" class="basic-button">Blog tour: The Betrayal of Thomas True, by A.J. West</a></li>
   <li>{% for post in site.posts limit:1 %}
   <a href="{{ post.url }}" class="basic-button">{{ post.title }}</a>
   {% endfor %}</li>
