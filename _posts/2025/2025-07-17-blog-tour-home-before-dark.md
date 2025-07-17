@@ -2,7 +2,7 @@
 date: 2025-07-17
 layout: post
 title: "Blog tour: Home Before Dark by Eva Björg Ægisdóttir, translated by Victoria Cribb"
-excerpt: "<cite>Home Before Dark</cite> is addictive, twisty, and irresistably dark and haunting."
+excerpt: "<cite>Home Before Dark</cite> is addictive, twisty, and irresistibly dark and haunting."
 featured-image: /images/home-before-dark.jpg
 ---
 
@@ -48,6 +48,6 @@ Then there's the Old Doctor's House, which in its latest incarnation is a school
 
 That brings us to the other haunting element &ndash; photographs &ndash; as the box contains a photo with some pertinent writing on the back. What's more, ten years on, Marsí discovers a mysterious photo tucked behind one of Stína in a family album. She also develops an unfinished film of Stína's, which includes a photo of a boy she can't identify because his head is out of shot, who may or may not be relevant to her investigation.
 
-<cite>Home Before Dark</cite> is addictive, twisty, and irresistably dark and haunting.
+<cite>Home Before Dark</cite> is addictive, twisty, and irresistibly dark and haunting.
 
 ![Home Before Dark blog tour banner](/images/home-before-dark-banner.jpg)
