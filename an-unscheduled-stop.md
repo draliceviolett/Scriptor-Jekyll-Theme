@@ -6,7 +6,9 @@ permalink: /an-unscheduled-stop/
 
 *On a bright, cold day in [January 2025](/what-i-read-in-january-2025/), I went to Orford Ness as part of the [Beach of Dreams project](https://www.beachofdreams.org/), with the aim of finding creative inspiration in its sights and stories. As well as having a really interesting day out, I got a short hopepunk sci-fi out of it.*
 
-*A key aim of the overall project was to produce and display hundreds of silk pennants inspired by parts of Britain's coastline. In May 2025, I went back to Orford Ness to see the three pennants that artists had produced based on three extracts from my story. I've included links at the relevant points in the story so you can see photos of the pennants &ndash; the last of which also includes audio of me reading the extract aloud!*
+*A key aim of the overall project was to produce and display hundreds of silk pennants inspired by parts of Britain's coastline. In May 2025, I went back to Orford Ness to see the three pennants that artists had produced based on three extracts from my story. As well as a few of my photos, I've included links at the relevant points in the story so you can see the pennants &ndash; the last of which also includes audio of me reading the extract aloud!*
+
+---
 
 It’s always time for tea on this ship, so when something broke inside the machine, we knew we’d have to pause our journey.
 
@@ -37,11 +39,15 @@ We were unlikely friends: Cam was tall and solidly-built, whereas I was short an
 
 After all that time in transit, I’d have struggled to adjust to any terrain, but the patch of Earth we’d alighted on was something else. The landscape was the flattest I’d ever encountered, and the scattered remnants of abandoned buildings were all that kept me from freaking out that I could see so far into the distance no matter which way I faced. It was also deathly quiet, without even the ducks and chickens that pecked around every human settlement in the galaxy.
 
+![A view of the shingle fields of Orford Ness under a big blue sky](/images/an-unscheduled-stop-1.jpg)
+
 The sky was orange, but it didn’t look the same in every direction. A solid wall of terracotta had greeted me as I emerged through the hatch and descended the fold-out steel steps. On the ground, I turned 120 degrees to see a frothy white line resting on the horizon, creating an ombré effect. Another small turn, and a huge, blazing sun bleached the sky an apricot shade. Even with my suit’s inbuilt temperature regulation system and automatic transition visor, being in its direct path was barely tolerable. At least the filters were effective &ndash; I didn’t want to know what toxins were lurking in the air.
 
 ‘I always imagined the sky would be blue, like in the old films,’ said Cam. ‘I suppose that’s just how it was Before, though.’
 
 The fields of shingle, scrubby grass, and shallow craters of stagnant water &ndash; either from the mercurial sea, or one of Earth’s periodic but violent downpours &ndash; that surrounded us were divided by what must have once been a well-delineated stone path, now barely distinguishable by the rotten stumps of wood that lined it on either side. Putting our trust in the wisdom of our forebears, we decided to follow the path with the sun behind us, and walked in silence for a while, stones skittering in our wake. Piles of rubble and corroded scrap metal, as well as the distant buildings growing closer, broke up the monotony of the landscape, and Cam would occasionally veer off course to check out the odd piece of metal that still glinted. She collected a few bits she thought might fit the bill, which I duly zipped into her backpack.
+
+![A concrete path cutting through the shingle fields at Orford Ness](/images/an-unscheduled-stop-2.jpg)
 
 ‘One of these will probably be fine if I cut them down a bit, but the perfect piece could be just round the corner,’ she explained. ‘And anyway, I’m curious. I just can’t figure out what this place could have been used for. Like, are those standing stones?’ She pointed at a gathering of squat concrete blocks, positioned to form a semi-circle. ‘I expect you know more about them than I do.’
 
@@ -50,6 +56,8 @@ The fields of shingle, scrubby grass, and shallow craters of stagnant water &nda
 ‘And what do you think?’ Cam probed.
 
 ‘I think they’re a lot smaller than I imagined, though they could have eroded or sunk into the ground, I suppose. Some of the buildings around here give me a bit of a factory vibe,’ I gestured towards a single-storey brick building up ahead. ‘So maybe this was a place food was produced, and the stone circle was used to pray for a continuous supply.’
+
+![A haphazard pile of concrete blocks on the shingle at Orford Ness on a clear day](/images/an-unscheduled-stop-3.jpg)
 
 Centuries of dust storms had rendered the building dirty brown, and the window and door frames to the front were empty. I poked my head inside and saw rusted machinery built into the walls and floor, which supported my theory, though I couldn’t even guess what it might have been used for. Cam, meanwhile, trudged around the outside of the building, then called to me.
 
@@ -60,6 +68,8 @@ Centuries of dust storms had rendered the building dirty brown, and the window a
 [Pennant 754](https://www.beachofdreams.org/pennants/754)
 
 I found a chunk of concrete to perch on &ndash; this one unceremoniously dumped amid a conglomeration of other rocky waste, rather than deliberately arranged &ndash; and pondered the view. I could see a building that bore a resemblance to the Japanese pagodas we’d learned about, except it only had one storey and, like almost everything else here, was constructed from concrete. And while the standing stones had been surprisingly small, even from a distance I could tell this structure was much larger than I’d anticipated. The proportions of this place were making me feel like Alice in Wonderland, and I briefly wondered if my suit was letting in some kind of mind-altering particle.
+
+![View of two of the concrete pagoda-style buildings at Orford Ness](/images/an-unscheduled-stop-4.jpg)
 
 Cam finally emerged with both hands full of shiny metal for me to cram into her backpack. ‘Do you really need all this?’ I complained as I struggled to get the last couple of pieces in.
 
@@ -80,6 +90,8 @@ Despite our caution, what we saw on the path pulled us up short. A long, lithe b
 ‘A hare!’ I whispered to Cam, excitedly.
 
 Careful not to make a sound, we watched the hare twitch and preen until it bolted away. We then walked back to the ship in companionable silence as we processed the enormity of witnessing life &ndash; and a stunning representation of life, at that &ndash; on Earth.
+
+![View of two hares among the shingle fields and abandoned concrete buildings of Orford Ness](/images/an-unscheduled-stop-5.jpg)
 
 ---
 

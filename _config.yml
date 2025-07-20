@@ -27,6 +27,8 @@ favicon: ""
 navigation:
   - text: Blog
     url: /
+  - text: A short story
+    url: /an-unscheduled-stop/
   - text: About my PhD
     url: /about-my-phd/
   - text: About me
