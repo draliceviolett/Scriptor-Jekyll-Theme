@@ -79,7 +79,7 @@ A sudden gust of wind had pelted a scattering of shingle at her legs, hard enoug
 
 ‘I think there’s a dust storm coming!’ she shouted over the wind, which was now whipping up and sending even more debris flying all over. ‘We need to take cover!’
 
-[Pennant 784](https://www.beachofdreams.org/pennants/784)
+[Pennant 784 &ndash; includes audio!](https://www.beachofdreams.org/pennants/784)
 
 She grabbed me by the sleeve and pulled me round the back of the building where she’d hit the metal jackpot. As the lack of rust on her payload indicated, it was relatively sheltered. We hunkered against the wall and clung to one another as great swathes of dust &ndash; ash from the long-ago fires &ndash; swirled away from us and reduced our visibility to practically zero. If I’d been on my own, I’d have been terrified out of my wits, but Cam’s solid, calm presence assured me that this would pass, and we would be okay, even though we couldn’t hear one another’s voices over the now howling wind.
 
