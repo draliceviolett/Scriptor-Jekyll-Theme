@@ -35,11 +35,11 @@ My review schedule is looking rather sparse beyond the next couple of weeks, so 
 
 <cite>The Listeners</cite>, by Maggie Stiefvater - 4*
 
-[<cite>Desolation: The Overdue Library</cite>, by D. Harrington](/blog-tour-desolation-the-overdue-library/) - 4*
+[<cite>Desolation: The Overdue Library</cite>, by D. Harrington](/desolation-the-overdue-library-by-d-harrington/) - 4*
 
 <cite>The Path of Thorns</cite>, by Angela Slatter - 5*
 
-<cite>Desolation: Keep Your Imaginary Friends Close</cite>, by D. Harrington - review coming soon! 4*
+[<cite>Desolation: Keep Your Imaginary Friends Close</cite>](/desolation-keep-your-imaginary-friends-close-by-d-harrington/) by D. Harrington - 4*
 
 ## Looking ahead...
 
